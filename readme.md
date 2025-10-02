@@ -1,1669 +1,1592 @@
-#Compass 2.0: Sentou Setsuri Kaiseki System
-100-man no Inochi no Ue ni Ore wa Tatteiru
-100-man no Inochi no Ue ni Ore wa Tatteiru Season 2
-11eyes
-12-sai.: Chicchana Mune no Tokimeki
-16bit Sensation: Another Layer
-2.43: Seiin Koukou Danshi Volley-bu
-2.5-jigen no Ririsa
-22/7
-3-gatsu no Lion
-3-gatsu no Lion Season 2
-3D Kanojo: Real Girl
-3D Kanojo: Real Girl Season 2
-4-nin wa Sorezore Uso wo Tsuku
-86
-86 Part 2
-91 Days
-A-Channel
-A-Rank Party wo Ridatsu shita Ore wa, Moto Oshiego-tachi to Meikyuu Shinbu wo Mezasu.
-A.I.C.O.: Incarnation
-Absolute Duo
-ACCA: 13-ku Kansatsu-ka
-Accel World
-Acchi Kocchi
-Acro Trip
-Adachi to Shimamura
-Aharen-san wa Hakarenai
-Aharen-san wa Hakarenai Season 2
-Ahiru no Sora
-Aho Girl
-Air  
-Ajin
-Ajin Season 2
-Akagami no Shirayuki-hime
-Akagami no Shirayuki-hime Season 2
-Akame ga Kill!
-Akaneiro ni Somaru Saka
-Akanesasu Shoujo
-Akatsuki no Yona
-AKB0048
-AKB0048: Next Stage
-Akebi-chan no Sailor-fuku
-Akiba Maid Sensou
-Akiba’s Trip The Animation  
-Akkun to Kanojo
-Aku no Hana
-Akudama Drive
-Akuma no Riddle
-Akuyaku Reijou Level 99
-Akuyaku Reijou nanode Last Boss wo Kattemimashita
-Akuyaku Reijou Tensei Ojisan
-Aldnoah.Zero
-Aldnoah.Zero Season 2
-Amaama to Inazuma
-Amagami SS
-Amagami SS+ Plus
-Amagami-san Chi no Enmusubi
-Amagi Brilliant Park  
-Amanchu!
-Amanchu! Advance
-Ame to Kimi to
-Ameku Takao no Suiri Karte
-Ange Vierge
-Angel Beats! B
-Anima Yell!
-Animegataris
-Anne Happy
-Anne Shirley
-Ano Natsu de Matteru
-AnoHana
-Another
-Another World
-Ansatsu Kyoushitsu
-Ansatsu Kyoushitsu Season 2
-Ao Ashi
-Ao Haru Ride
-Ao no Exorcist
-Ao no Exorcist: Kyoto Fujouou-hen
-Ao no Exorcist: Shimane Illuminati-hen
-Ao no Exorcist: Yosuga-hen
-Ao no Exorcist: Yuki no Hate-hen
-Ao no Hako
-Ao no Kanata no Four Rhythm
-Ao no Orchestra
-Aoi Bungaku Series
-Aoi Hana
-oki Hagane no Arpeggio: Ars Nova
-Apocalypse Hotel
-Appare-Ranman!
-Araburu Kisetsu no Otome-domo yo.
-Arakawa Under the Bridge
-Arakawa Under the Bridge x Bridge
-Arcana Famiglia
-Aria The Animation  
-Arifureta Shokugyou de Sekai Saikyou
-Arifureta Shokugyou de Sekai Saikyou Season 2
-Arifureta Shokugyou de Sekai Saikyou Season 3
-Arknights: Perish in Frost
-Arknights: Prelude to Dawn
-Arknights: Rise from Ember
-Around 40 Otoko no Isekai Tsuuhan
-Ars no Kyojuu
-Arslan Senki
-Arslan Senki: Fuujin Ranbu
-Arte
-Aru Majo ga Shinu Made
-Asobi Asobase
-Assassins Pride
-Assault Lily: Bouquet
-Astro Note
-Asu no Yoichi!
-Atri: My Dear Moments
-Ayakashi Triangle
-Azur Lane
-B-gata H-kei
-Babylon
-Baccano!
-Back Arrow
-Back Street Girls: Gokudolls
-Bad Girl
-Baka to Test to Shoukanjuu
-Baka to Test to Shoukanjuu Ni!
-Bakemonogatari
-Baki
-Bakuman
-Bakuman Season 2
-Bakuman Season 3
-Ballroom e Youkoso
-Banana Fish
-BanG Dream!
-BanG Dream! Ave Mujica
-BanG Dream! It’s MyGO!!!!!
-BanG Dream! Season 2
-BanG Dream! Season 3
-Barakamon
-Bartender: Kami no Glass
-Beastars
-Beastars Season 2
-Beatless
-Beelzebub
-Beelzebub-jou no Okinimesu mama.
-Bem
-Ben-To
-Benriya Saitou-san, Isekai ni Iku
-Berserk: Ougon Jidai-hen – Memorial Edition
-Binbougami ga!
-Birdie Wing: Golf Girls’ Story
-Birdie Wing: Golf Girls’ Story Season 2
-Black Bullet
-Black Clover
-Black Lagoon
-Black★★Rock Shooter: Dawn Fall
-Black★Rock Shooter
-Blade &amp; Soul
-Bleach: Sennen Kessen-hen – Ketsubetsu-tan
-Bleach: Sennen Kessen-hen – Soukoku-tan
-Bleach: Sennen Kessen-hen
-Blend S
-Blood Lad
-Blood-C
-Blue Archive the Animation
-Blue Lock
-Blue Lock Season 2
-Blue Period
-Bocchi the Rock!
-Bofuri
-Bofuri Season 2
-Boku dake ga Inai Machi
-Boku no Hero Academia
-Boku no Hero Academia Season 2
-Boku no Hero Academia Season 3
-Boku no Hero Academia Season 4
-Boku no Hero Academia Season 5
-Boku no Hero Academia Season 6
-Boku no Hero Academia Season 7
-Boku no Kanojo ga Majimesugiru Sho-bitch na Ken
-Boku no Kokoro no Yabai Yatsu
-Boku no Kokoro no Yabai Yatsu Season 2
-Boku no Tsuma wa Kanjou ga Nai
-Boku wa Tomodachi ga Sukunai
-Boku wa Tomodachi ga Sukunai Next
-BokuHaka
-Bokura ga Ita
-Bokura no Ame-iro Protocol
-Bokura wa Minna Kawaisou
-Bokutachi no Remake
-Bokutachi wa Benkyou ga Dekinai
-Bokutachi wa Benkyou ga Dekinai Season 2
-Boogiepop wa Warawanai
-Boruto: Naruto Next Generations
-Botsuraku Yotei no Kizoku dakedo, Hima Datta kara Mahou wo Kiwametemita
-Bounen no Xamdou
-Boushoku no Berserk
-Brand New Animal
-Btooom!
-Bucchigire!
-Bucchigiri?!
-Buddy Complex
-Buddy Daddies
-Bungou Stray Dogs
-Bungou Stray Dogs Season 2
-Bungou Stray Dogs Season 3
-Bungou Stray Dogs Season 4
-Bungou Stray Dogs Season 5
-Bungou to Alchemist: Shinpan no Haguruma
-Busamen Gachi Fighter
-Busou Shoujo Machiavellianism
-Busu ni Hanataba wo.
-Buta no Liver wa Kanetsu Shiro
-Bye Bye, Earth
-Bye Bye, Earth Season 2
-C³ – CubexCursedxCurious
-Caligula
-Campione!
-Canaan
-Captain Tsubasa Season 2: Junior Youth-hen
-arole &amp; Tuesday
-Centaur no Nayami
-Chain Chronicle: Haecceitas no Hikari
-Chainsaw Man
-Charlotte B
-Cheat Kusushi no Slow Life
-Chi.: Chikyuu no Undou ni Tsuite
-Chihayafuru
-Chihayafuru
-Chihayafuru 3
-Chio-chan no Tsuugakuro
-Chiyu Mahou no Machigatta Tsukaikata
-Chou Kadou Girl ⅙: Amazing Stranger
-Choujigen Game Neptune The Animation
-Choyoyu
-Chuubyou Gekihatsu Boy
-Chuunibyou demo Koi ga Shitai!
-Chuunibyou demo Koi ga Shitai! Ren
-Circlet Princess
-Citrus
-City The Animation
-Clannad
-Clannad: After Story
-Class no Daikirai na Joshi to Kekkon suru Koto ni Natta.
-Claymore
-Clevatess: Majuu no Ou to Akago to Shikabane no Yuusha
-lockwork Planet
-Code Geass: Dakkan no Rozé
-Code Geass: Hangyaku no Lelouch
-Code Geass: Hangyaku no Lelouch R2
-Comet Lucifer
-Comic Girls
-Cool Doji Danshi
-Cop Craft
-Coppelion
-Cross Ange: Tenshi to Ryuu no Rondo
-Cue!
-D_Cide Traumerei the Animation
-D-Frag!
-Dagashi Kashi
-Dagashi Kashi Season 2
-Daitoshokan no Hitsujikai
-Dakara Boku wa, H ga Dekinai.
-Dance Dance Danseur
-Dandadan
-Dandadan Season 2
-Danganronpa 3: Mirai-hen
-Danganronpa 3: Zetsubou-hen
-Danganronpa: The Animation
-Danjo no Yuujou wa Seiritsu suru?
-DanMachi
-Danmachi Season 2
-Danmachi Season 3
-DanMachi Season 4
-DanMachi Season 4 Part 2
-DanMachi Season 5
-Danna ga Nani wo Itteiru ka Wakaranai Ken
-Danna ga Nani wo Itteiru ka Wakaranai Ken 2 Sure-me
-Dansai Bunri no Crime Edge
-Danshi Koukousei no Nichijou
-Dantalian no Shoka
-Dark Gathering
-Darker than Black B
-Darker than Black: Ryuusei no Gemini
-Darling in the FranXX
-Darwin’s Game
-Date A Live
-Date A Live II B
-Date A Live Ⅲ
-Date A Live IV
-Date A Live V
-Dead Mount Death Play
-Dead Mount Death Play Part 2
-Deadman Wonderland
-Deaimon
-Death March kara Hajimaru Isekai Kyousoukyoku
-Death Note
-Death Parade
-Deatte 5-byou de Battle
-Deca-Dence
-Deep Insanity: The Lost Child
-Dekiru Neko wa Kyou mo Yuuutsu
-Dekisokonai to Yobareta Motoeiyuu wa Jikka kara Tsuihou sareta node Sukikatte ni Ikiru Koto ni Shita
-Dekoboko Majo no Oyako Jijou
-Delico’s Nursery
-Demi-chan wa Kataritai
-Denki-gai no Honya-san
-Denpa Kyoushi
-Denpa Onna to Seishun Otoko
-Densetsu no Yuusha no Densetsu
-Devil May Cry
-Devil Survivor 2 The Animation
-Devilman: Crybaby
-Devils Line
-Diabolik Lovers
-Diabolik Lovers More,Blood
-Dimension W
-Do It Yourself!!
-Dog Days
-Dolls’ Frontline
-Domestic na Kanojo
-Donten ni Warau
-Dorohedoro
-Dororo
-Dosanko Gal wa Namara Menkoi
-Doukyonin wa Hiza, Tokidoki, Atama no Ue.
-Douse, Koishite Shimaunda.
-Dr. Stone
-Dr. Stone: New World
-Dr. Stone: New World Part 2
-Dr. Stone: Science Future
-Dr. Stone: Science Future Part 2
-Dr. Stone: Stone Wars
-Dragon Crisis!
-Dragon Quest: Dai no Daibouken (2020)
-Dragon, Ie wo Kau
-Drifters
-Dumbbell Nan Kilo Moteru?
-Dungeon Meshi
-Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka Gaiden: Sword Oratoria
-Dungeon no Naka no Hito
-Durarara!!
-Durarara!!x2 Ketsu
-Durarara!!x2 Shou
-Durarara!!x2 Ten
-Edens Zero
-Edens Zero Season 2
-Edomae Elf
-Egao no Daika
-Eiyuu Kyoushitsu
-Eiyuuou, Bu wo Kiwameru Tame Tenseisu
-Eizouken ni wa Te wo Dasu na!
-Elfen Lied
-Endride
-Endro~!
-Enen no Shouboutai
-Enen no Shouboutai: Ni no Shou
-Enen no Shouboutai: San no Shou
-Engage Kiss
-Ergo Proxy
-Eromanga-sensei
-Escha &amp; Logy no Atelier
-Etotama
-Fairy Gone
-Fairy Gone Season 2
-Fairy Tail
-Fairy Tail: 100-nen Quest
-Fairy Tail: Final Series
-Fantasy Bishoujo Juniku Ojisan to
-Farmagia
-Fate/Apocrypha
-Fate/Grand Order: Zettai Majuu Sensen Babylonia
-Fate/kaleid liner Prisma Illya 2wei Herz!
-ate/kaleid liner Prisma Illya 2wei!
-ate/kaleid liner Prisma Illya
-Fate/stay night: Unlimited Blade Works
-Fate/stay night: Unlimited Blade Works S
-Fate/strange Fake
-Fate/Zero
-Fate/Zero Season 2
-Flying Witch
-Fortune Arterial: Akai Yakusoku
-Free!
-Free!: Dive to the Future
-Free!: Eternal Summer
-Fruits Basket
-Fruits Basket Season 2
-Fruits Basket: The Final
-Fugou Keiji: Balance:Unlimited
-Fuguushoku “Kanteishi” ga Jitsu wa Saikyou Datta
-Fukigen na Mononokean
-Fukigen na Mononokean Tsuzuki
-Full Metal Panic!
-Full Metal Panic! Invisible Victory
-Full Metal Panic! The Second Raid
-Full Metal Panic? Fumoffu
-Fullmetal Alchemist: Brotherhood
-Fumetsu no Anata e
-Fumetsu no Anata e Season 2
-Fune wo Amu
-Futoku no Guild
-Futsal Boys!!!!!
-Fuufu Ijou, Koibito Miman.
-Fuuka
-Fuuto Tantei
-Gabriel DropOut
-Gachiakuta
-Gaikotsu Kishi-sama, Tadaima Isekai e Odekakechuu
-Gakkougurashi!
-Gakuen Babysitters
-Gakuen Basara
-Gakusen Toshi Asterisk
-Gakusen Toshi Asterisk Season 2
-Gal to Kyouryuu
-Game Center Shoujo to Ibunka Kouryuu
-Gamers!
-Gangsta.
-Gatchaman Crowds
-Gatchaman Crowds Insight
-Gate: Jieitai Kanochi nite, Kaku Tatakaeri
-Gate: Jieitai Kanochi nite, Kaku Tatakaeri Season 2
-Gegege no Kitarou
-Gekai Elise
-Gekidol
-Gekkan Shoujo Nozaki-kun
-Genei wo Kakeru Taiyou
-Genjitsu no Yohane: Sunshine in the Mirror
-Genjitsu Shugi Yuusha no Oukoku Saikenki
-Genjitsu Shugi Yuusha no Oukoku Saikenki Season 2
-Gensou Sangokushi: Tengen Reishinki
-Getsuyoubi no Tawawa 2
-Getsuyoubi no Tawawa
-Gi(a)rlish Number
-Gibiate
-Giji Harem
-Gimai Seikatsu
-Gin no Saji
-Gin no Saji Season 2
-Ginga Eiyuu Densetsu: Die Neue These – Kaikou
-Gingitsune
-Girl Friend Beta
-Girls &amp; Panzer
-Girls Band Cry
-Girly Air Force
-Girumasu
-GJ-bu
-Gleipnir
-Goblin Slayer
-Goblin Slayer Season 2
-Gochuumon wa Usagi desu ka?
-Gochuumon wa Usagi desu ka? S2
-Gochuumon wa Usagi Desu ka? S3
-Godzilla Singular Point
-Gokukoku no Brynhildr
-Golden Kamuy
-Golden Kamuy Season 2
-Golden Kamuy Season 3
-Golden Kamuy Season 4
-Golden Time
-Gorilla no Kami kara Kago sareta Reijou wa Ouritsu Kishidan de Kawaigarareru
-Gosick
-Gotoubun no Hanayome
-Gotoubun no Hanayome Season 2
-Goukon ni Ittara Onna ga Inakatta Hanashi
-Granbelm
-Granblue Fantasy The Animation
-Granblue Fantasy The Animation S2
-Grancrest Senki
-Grand Blue
-Grand Blue Season 2
-Great Pretender
-Grimms Notes The Animation
-Grisaia no Kajitsu
-Grisaia no Rakuen
-Grisaia: Phantom Trigger
-Gugure! Kokkuri-san
-Guilty Crow
-Guilty Gear Strive: Dual Rulers
-Gundam Build Fighters
-Gundam Build Fighters Try
-Gunjou no Fanfare
-Gunjou no Magmel
-Gyakkyou Burai Kaiji: Hakairoku-hen
-Gyakkyou Burai Kaiji: Ultimate Survivor
-Gyakuten Sekai no Denchi Shoujo
-Hachi-nan tte, Sore wa Nai deshou!
-Hachigatsu no Cinderella Nine
-Hagure Yuusha no Aesthetica
-Hai to Gensou no Grimgar
-Haikyuu!!
-Haikyuu!! Season 2
-Haikyuu!!: Karasuno Koukou VS Shiratorizawa Gakuen Koukou
-Haikyuu!!: To the Top
-Haiyore! Nyaruko-san
-Haiyore! Nyaruko-san W
-Hajimete no Gal
-Hakata Tonkotsu Ramens
-Hakumei to Mikochi
-Hamatora Season 2
-Hamatora The Animation
-Hamefura
-Hamefura Season 2
-Hametsu no Oukoku
-Hana wa Saku, Shura no Gotoku
-Hanamonogatari
-Hananoi-kun to Koi no Yamai
-Hanasaku Iroha
-Hanayamata
-Handa-kun
-Hanebado!
-Hanyou no Yashahime: Sengoku Otogizoushi – Ni no Shou
-Happy Sugar Life
-Harukana Receive
-Hataage! Kemono Michi
-Hataraku Maou-sama!
-Hataraku Maou-sama! Season 2
-Hataraku Maou-sama! Season 3
-Hataraku Saibou
-Hataraku Saibou Black
-Hataraku Saibou Season 2
-Hatena Illusion
-Hazure Skill “Kinomi Master”
-Hazurewaku no “Joutai Ijou Skill” de Saikyou ni Natta Ore ga Subete wo Juurin suru made
-Healer Girl
-Heavy Object
-Heike Monogatari
-Heion Sedai no Idaten-tachi
-Helck
-Hellsing Ultimate
-Henjin no Salad Bowl
-HenSuki
-Heroine Tarumono! Kiraware Heroine to Naisho no Oshigoto
-Heya Camp
-Hibi wa Sugiredo Meshi Umashi
-Hibike! Euphonium B
-Hibike! Euphonium Season 2
-Hibike! Euphonium Season 3
-Hidan no Aria AA
-Hidan no Aria
-Higashi no Eden
-Higehiro
-High Card
-High Card Season 2
-High School DxD
-High School DxD BorN
-High School DxD Hero
-High School DxD New
-High School Fleet
-High Score Girl
-High Score Girl Season 2
-Highschool of the Dead
-Higurashi no Naku Koro ni
-Higurashi no Naku Koro ni Gou
-Higurashi no Naku Koro ni Sotsu
-Hikari no Ou
-Hikari no Ou Season 2
-Hikaru ga Shinda Natsu
-Hikikomari Kyuuketsuki no Monmon
-Himesama “Goumon” no Jikan desu
-Himouto! Umaru-chan
-Himouto! Umaru-chan R
-Hinako Note
-Hinamatsuri
-Hitoribocchi no Isekai Kouryaku
-Hitoribocchi no Marumaru Seikatsu
-Hitsugi no Chaika
-Hitsugi no Chaika: Avenging Battle
-Honey Lemon Soda
-Honzuki no Gekokujou
-Honzuki no Gekokujou Season 2
-Honzuki no Gekokujou Season 3
-Horimiya
-Horimiya: Piece
-Hortensia Saga
-Hoshi no Samidare
-Hoshiai no Sora
-Hoshifuru Oukoku no Nina
-Hoshikuzu Telepath
-Hoshizora e Kakaru Hashi
-Houkago Saikoro Club
-Houkago Teibou Nisshi
-Hourou Musuko
-Houseki no Kuni
-Hunter x Hunter
-Hyakkano: Kimi no Koto ga Daidaidaidaidaisuki na 100-nin no Kanojo
-Hyakkano: Kimi no Koto ga Daidaidaidaidaisuki na 100-nin no Kanojo Season 2
-Hyakuren no Haou to Seiyaku no Valkyria
-Hyouka
-Hyouken no Majutsushi ga Sekai wo Suberu
-Ichiban Ushiro no Daimaou
-Ichigo Mashimaro
-Id:Invaded
-Ijiranaide, Nagatoro-san
-Ijiranaide, Nagatoro-san Season 2
-Ikebukuro West Gate Park
-Ikenaikyo
-Imocho
-Imouto sae Ireba Ii.
-Inari, Konkon, Koi Iroha.
-Infinite Dendrogram
-Inou-Battle wa Nichijou-kei no Naka de
-nu ni Nattara Suki na Hito ni Hirowareta.
-Inu x Boku SS  
-Inugami-san to Nekoyama-san  
-Inuyashiki
-Irozuku Sekai no Ashita kara
-IS: Infinite Stratos 2
-IS: Infinite Stratos
-Isekai Cheat Magician
-Isekai de Cheat Skill wo Te ni Shita Ore wa
-Isekai de Mofumofu Nadenade suru Tame ni Ganbattemasu.
-Isekai Izakaya: Koto Aitheria no Izakaya Nobu
-Isekai Maou to Shoukan Shoujo no Dorei Majutsu
-Isekai Maou to Shoukan Shoujo no Dorei Majutsu Season 2
-Isekai Meikyuu de Harem wo
-Isekai Mokushiroku Mynoghra
-Isekai Nonbiri Nouka
-Isekai Ojisan
-Isekai One Turn Kill Neesan
-Isekai Quartet
-Isekai Quartet Season 2
-Isekai Shikkaku
-Isekai Shokudou
-Isekai Shokudou Season 2
-Isekai Shoukan wa Nidome desu
-Isekai Suicide Squad
-Isekai wa Smartphone to Tomo ni
-Isekai wa Smartphone to Tomo ni. 2
-Isekai Yakkyoku
-Isekai Yururi Kikou
-Ishura
-Ishura Season 2
-Island
-Isshuukan Friends.
-Isuca
-Iwa Kakeru!: Sport Climbing Girls
-Izure Saikyou no Renkinjutsushi?
-Jahy-sama wa Kujikenai!
-Jaku-Chara Tomozaki-kun
-Jaku-Chara Tomozaki-kun Season 2
-Jibaku Shounen Hanako-kun
-Jibaku Shounen Hanako-kun 2 Part 2
-Jibaku Shounen Hanako-kun Season 2
-Jidou Hanbaiki ni Umarekawatta Ore wa Meikyuu wo Samayou
-Jidou Hanbaiki ni Umarekawatta Ore wa Meikyuu wo Samayou S2
-Jigoku Sensei Nube (2025)
-Jigoku Shoujo
-Jigokuraku
-Jiisan Baasan Wakagaeru
-Jijou wo Shiranai Tenkousei ga Guigui Kuru.
-Jinrui wa Suitai Shimashita
-Jitsu wa Ore, Saikyou deshita?
-Jitsu wa Watashi wa
-JoJo no Kimyou na Bouken
-JoJo no Kimyou na Bouken Part 3: Stardust Crusaders
-JoJo no Kimyou na Bouken Part 3: Stardust Crusaders Season 2
-JoJo no Kimyou na Bouken Part 4: Diamond wa Kudakenai (Episode 1 – 39)
-JoJo no Kimyou na Bouken Part 5: Ougon no Kaze (Episode 1 – 39)
-Joker Game
-Jormungand
-Jormungand: Perfect Order
-Joshikausei
-Joshikousei no Mudazukai
-Joshiraku
-Joukamachi no Dandelion
-Jouran: The Princess of Snow and Blood
-Jujutsu Kaisen
-Jujutsu Kaisen Season 2
-Junketsu no Maria
-Just Because!
-Juuou Mujin no Fafnir
-K-On! B
-K-On! Season 2 B
-K-Project
-K: Return of Kings
-Kabukichou Sherlock
-Kabukimonogatari
-Kabushikigaisha Magi-Lumière
-Kage no Jitsuryokusha ni Naritakute!
-Kage no Jitsuryokusha ni Naritakute! Season 2
-Kageki Shoujo!!
-Kaguya-sama wa Kokurasetai
-Kaguya-sama wa Kokurasetai Season 2
-Kaguya-sama wa Kokurasetai Season 3
-Kaichou wa Maid-sama!
-Kaifuku Jutsushi no Yarinaoshi
-Kaii to Otome to Kamikakushi
-Kaijin Kaihatsu-bu no Kuroitsu-san
-Kaijuu 8-gou
-Kaijuu 8-gou Season 2
-Kaiko sareta Ankoku Heishi (30-dai) no Slow na Second Life
-Kaizoku Oujo
-Kakegurui
-Kakegurui Season 2
-Kakkou no Iinazuke
-Kakkou no Iinazuke Season 2
-Kakumeiki Valvrave
-Kakumeiki Valvrave Season 2
-Kakuriyo no Yadomeshi
-Kakushigoto
-Kami wa Game ni Ueteiru.
-Kami-tachi ni Hirowareta Otoko
-Kami-tachi ni Hirowareta Otoko Season 2
-Kaminaki Sekai no Kamisama Katsudou
-Kamisama Dolls
-Kamisama Hajimemashita B
-Kamisama Hajimemashita Season 2
-Kamisama ni Natta Hi
-Kamisama no Memochou
-Kamonohashi Ron no Kindan Suiri
-Kamonohashi Ron no Kindan Suiri Season 2
-Kanata no Astra
-Kanchigai no Atelier Meister
-KanColle: Itsuka Ano Umi de
-Kandagawa Jet Girls
-Kannagi
-Kanojo ga Flag wo Oraretara
-Kanojo ga Koushaku-tei ni Itta Riyuu
-Kanojo mo Kanojo
-Kanojo mo Kanojo Season 2
-Kanojo, Okarishimasu
-Kanojo, Okarishimasu Season 2
-Kanojo, Okarishimasu Season 3
-Kanojo, Okarishimasu Season 4
-Kanpekisugite Kawaige ga Nai to Konyaku Haki sareta Seijo wa Ringoku ni Urareru
-Kantai Collection: KanColle
-Kaoru Hana wa Rin to Saku
-Karakai Jouzu no Takagi-san
-Karakai Jouzu no Takagi-san S2
-Karakai Jouzu no Takagi-san S3
-Karasu wa Aruji wo Erabanai
-Katainaka no Ossan, Kensei ni Naru
-Katanagatari
-Katsute Kami Datta Kemono-tachi e
-Katsute Mahou Shoujo to Aku wa Tekitai shiteita.
-Kawaii dake ja Nai Shikimori-san
-Kawaisugi Crisis
-Kaze ga Tsuyoku Fuiteiru
-Kaze no Stigma
-Kekkai Sensen &amp; Beyond
-Kekkai Sensen
-Kekkon suru tte, Hontou desu ka
-Kekkon Yubiwa Monogatari
-Kemono Jihen
-Kengan Ashura
-Kenja no Deshi wo Nanoru Kenja
-Kenja no Mago
-Kenka Dokugaku
-Keppeki Danshi! Aoyama-kun
-Kidou Senshi Gundam: GQuuuuuuX
-Kijin Gentoushou
-Kikansha no Mahou wa Tokubetsu desu
-Kill la Kill
-Kimetsu no Yaiba
-Kimetsu no Yaiba: Hashira Geiko-hen
-Kimetsu no Yaiba: Katanakaji no Sato-hen
-Kimetsu no Yaiba: Mugen Ressha-hen
-Kimetsu no Yaiba: Yuukaku-hen
-Kimi ni Todoke
-Kimi ni Todoke Season 2
-Kimi ni Todoke Season 3
-Kimi no Iru Machi
-Kimi no Na wa.
-Kimi wa Houkago Insomnia
-Kimi wa Meido-sama.
-Kimisen
-Kimisen Season 2
-Kimizero
-King’s Raid: Ishi wo Tsugumono-tachi
-Kingdom
-Kingdom Season 2
-Kingdom Season 3
-Kingdom Season 4
-Kingdom Season 5
-Kiniro Mosaic
-Kiniro Mosaic Season 2
-Kino no Tabi
-Kinoko Inu
-Kinsou no Vermeil
-Kiseijuu: Sei no Kakuritsu
-Kishuku Gakkou no Juliet
-Kitsutsuki Tanteidokoro
-Kizetsu Yuusha to Ansatsu Hime
-Kiznaiver
-Kizumonogatari I: Tekketsu-hen
-Kizumonogatari II: Nekketsu-hen
-Kizumonogatari III: Reiketsu-hen
-Kizuna no Allele
-Kizuna no Allele Season 2
-Knight’s &amp; Magic
-Kobayashi-san Chi no Maid Dragon B
-Kobayashi-san Chi no Maid Dragon S
-Koi to Producer: EVOL×LOVE
-Koi to Senkyo to Chocolate
-Koi to Uso
-Koi to Yobu ni wa Kimochi Warui
-Koi wa Ameagari no You ni
-Koi wa Futago de Warikirenai
-Koi wa Sekai Seifuku no Ato de
-Koimonogatari
-Koisuru Asteroid
-Kokoro Connect
-Komi-san wa, Comyushou desu.
-Komi-san wa, Comyushou desu. Season 2
-Kono Bijutsubu ni wa Mondai ga Aru!
-Kono Healer, Mendokusai
-Kono Kaisha ni Suki na Hito ga Imasu
-Kono Oto Tomare!
-Kono Oto Tomare! Season 2
-Kono Sekai wa Fukanzen Sugiru
-Kono Subarashii Sekai ni Bakuen wo!
-Kono Yo no Hate de Koi wo Utau Shoujo YU-NO
-Konohana Kitan
-KonoSuba
-KonoSuba Season 2
-KonoSuba Season 3
-Koori Zokusei Danshi to Cool na Douryou Joshi
-Kore wa Zombie Desu ka?
-Kore wa Zombie Desu ka? of the Dead
-Koroshi Ai
-Kotoura-san
-Koufuku Graffiti
-Koujo Denka no Kateikyoushi
-Koukyuu no Karasu
-Koutetsujou no Kabaneri
-Kowloon Generic Romance
-Koyomimonogatari
-Kubikiri Cycle: Aoiro Savant to Zaregototsukai
-Kubo-san wa Mob wo Yurusanai
-Kujira no Kora wa Sajou ni Utau
-Kuma Kuma Kuma Bear
-Kuma Kuma Kuma Bear Punch!
-Kumichou Musume to Sewagakari
-Kumo Desu ga, Nani ka?
-Kunoichi Tsubaki no Mune no Uchi
-Kuro no Shoukanshi
-Kuroiwa Medaka ni Watashi no Kawaii ga Tsuujinai
-Kuroko no Basket
-Kuroko no Basket Season 2
-Kuroko no Basket Season 3
-Kuroko no Basket: Last Game
-Kuromukuro
-Kuroshitsuji
-Kuroshitsuji II  
-Kuroshitsuji Movie: Book of the Atlantic
-Kuroshitsuji: Kishuku Gakkou-hen
-Kuroshitsuji: Midori no Majo-hen
-Kusuriya no Hitorigoto
-Kusuriya no Hitorigoto Season 2
-Kuusen Madoushi Kouhosei no Kyoukan
-Kuutei Dragons
-Kuzu no Honkai
-Kyokou Suiri
-Kyokou Suiri Season 2
-Kyoukai no Kanata
-Kyoukai Senki
-Kyoukai Senki Part 2
-Kyoukaisenjou no Horizon
-Kyoukaisenjou no Horizon II
-Kyuujitsu no Warumono-san
-Kyuuketsuki Sugu Shinu
-Kyuuketsuki Sugu Shinu Season 2
-Kyuukyoku Shinka shita Full Dive RPG ga Genjitsu yori mo Kusoge Dattara
-Lapis Re:LiGHTs
-Last Period: Owarinaki Rasen no Monogatari
-Lastame
-Lazarus
-Leadale no Daichi nite
-Level 1 dakedo Unique Skill de Saikyou desu
-Liar Liar
-Listeners
-Little Busters!
-Little Busters!: EX
-Little Busters!: Refrain
-Little Witch Academia
-Log Horizon
-Log Horizon Season 2
-Log Horizon: Entaku Houkai
-Loop 7-kaime no Akuyaku Reijou wa
-Lord El-Melloi II Sei no Jikenbo: Rail Zeppelin Grace Note
-Lost Song
-Love All Play
-Love Lab
-Love Live! Nijigasaki Gakuen School Idol Doukoukai
-Love Live! Nijigasaki Gakuen School Idol Doukoukai Season 2
-Love Live! School Idol Projec
-Love Live! School Idol Project S2
-Love Live! Sunshine!!
-Love Live! Sunshine!! Season 2
-Love Live! Superstar!!
-Love Live! Superstar!! Season 2
-Love Live! Superstar!! Season 3
-Lovely★Complex
-Lv1 Maou to One Room Yuusha
-Lv2 kara Cheat datta Motoyuusha Kouho no Mattari Isekai Life
-Lycoris Recoil
-Machikado Mazoku
-Machikado Mazoku: 2-choume
-Machine-Doll wa Kizutsukanai
-Madan no Ou to Vanadis
-Made in Abyss
-Made in Abyss: Retsujitsu no Ougonkyou
-Madougushi Dahliya wa Utsumukanai
-Maebashi Witches
-Magi: Sinbad no Bouken
-Magi: The Kingdom of Magic
-Magi: The Labyrinth of Magic
-Magia Record: Mahou Shoujo Madoka☆Magica Gaiden
-Magia Record: Mahou Shoujo Madoka☆Magica Gaiden Final Season
-Magia Record: Mahou Shoujo Madoka☆Magica Gaiden Season 2
-Magic Maker: Isekai Mahou no Tsukurikata
-Mahou Sensou
-Mahou Shoujo Ikusei Keikaku
-Mahou Shoujo Madoka★Magica
-Mahou Shoujo Magical Destroyers
-Mahou Shoujo ni Akogarete
-Mahou Shoujo Ore
-Mahou Shoujo Site
-Mahou Shoujo Tokushusen Asuka
-Mahouka Koukou no Rettousei
-Mahouka Koukou no Rettousei Season 3
-Mahouka Koukou no Rettousei: Raihousha-hen
-Mahouka Koukou no Yuutousei
-Mahoutsukai no Yome
-Mahoutsukai no Yome Season 2
-Mahoutsukai no Yome Season 2 Part 2
-Mahoutsukai Reimeiki
-Mairimashita! Iruma-kun
-Mairimashita! Iruma-kun Season 2
-Mairimashita! Iruma-kun Season 3
-Majo no Tabitabi
-Majo to Yajuu
-Majutsushi Orphen Hagure Tabi
-Majutsushi Orphen Hagure Tabi: Seiiki-hen
-Majutsushi Orphen Hagure Tabi: Urbanrama-hen
-Make Heroine ga Oosugiru!
-Mamahaha no Tsurego ga Motokano datta
-Manaria Friends
-Mangaka-san to Assistant-san to The Animation
-Maou 2099
-Maou Gakuin no Futekigousha
-Maou Gakuin no Futekigousha Season 2
-Maou Gakuin no Futekigousha Season 2 Part 2
-Maou no Ore ga Dorei Elf wo Yome ni Shitanda ga, Dou Medereba Ii?
-Maou-sama, Retry!
-Maou-sama, Retry! R
-Maougun Saikyou no Majutsushi wa Ningen datta
-Maoujou de Oyasumi
-Maoyuu Maou Yuusha
-Masamune-kun no Revenge
-Masamune-kun no Revenge R
-Mashiro no Oto
-Mashle
-Mashle Season 2
-Mato Seihei no Slave
-Mawaru Penguindrum
-Mayo Chiki!
-Mayonaka no Occult Koumuin
-Mayonaka Punch
-Mecha-ude (TV)
-Medaka Box
-Medaka Box Abnormal
-Medalist
-Megalo Box
-Megami no Cafe Terrace
-Megami no Cafe Terrace Season 2
-Megami-ryou no Ryoubo-kun.
-Megaton-kyuu Musashi
-Megumi no Daigo: Kyuukoku no Orange
-Meiji Tokyo Renka
-Meikyuu Black Company
-Mekakucity Actors
-Metallic Rouge
-MF Ghost
-MF Ghost Season 2
-Midara na Ao-chan wa Benkyou ga Dekinai
-Mieruko-chan
-Migi to Dali
-Mikadono Sanshimai wa Angai, Choroi.
-Mikakunin de Shinkoukei
-Minami-ke
-Minami-ke Okaeri
-Minami-ke Okawari
-Minami-ke Tadaima
-Mirai Nikki Subtile Indonesi
-Mitsuboshi Colors
-Mizu Zokusei no Mahoutsukai
-MM!
-Mob kara Hajimaru Tansaku Eiyuutan
-Mob Psycho 100
-Mob Psycho 100 Season 2
-Mob Psycho 100 Season 3
-Mobile Suit Gundam: The Witch from Mercury
-Mobile Suit Gundam: The Witch from Mercury Season 2
-Momentary Lily
-Momochi-san Chi no Ayakashi Ouji
-Mondaiji-tachi ga Isekai kara Kuru Sou Desu yo? B
-Mono: Weekend Animation
-Monogatari Series: Off &amp; Monster Season
-Mononogatari
-Mononogatari Season 2
-Monster Musume no Oishasan
-Mou Ippon!
-Mousou Dairinin
-Mugen no Juunin: Immortal
-Munou na Nana
-Murenase! Seton Gakuen
-Musaigen no Phantom Worl
-Mushikaburi-hime
-Mushish
-Mushishi Zoku Sho
-Mushishi Zoku Shou Season 2
-Mushoku Tensei II: Isekai Ittara Honki Dasu
-Mushoku Tensei II: Isekai Ittara Honki Dasu Part 2
-Mushoku Tensei: Isekai Ittara Honki Dasu
-Mushoku Tensei: Isekai Ittara Honki Dasu Part 2
-Muv-Luv Alternative
-Muv-Luv Alternative Season 2
-Muv-Luv Alternative: Total Eclipse  
-My Home Hero
-Na Nare Hana Nare
-Nageki no Bourei wa Intai shitai
-Nagi no Asukara
-Nakanohito Genome [Jikkyouchuu]
-Nami yo Kiitekure
-Nanatsu no Maken ga Shihai suru
-Nanatsu no Taizai
-Nanatsu no Taizai: Fundo no Shinpan
-Nanatsu no Taizai: Imashime no Fukkatsu
-Nanatsu no Taizai: Kamigami no Gekirin
-Nanatsu no Taizai: Mokushiroku no Yonkishi
-Nanatsu no Taizai: Mokushiroku no Yonkishi S2
-Nanbaka
-Nanbaka Season 2
-Nande Koko ni Sensei ga!?
-Natsu-iro Kiseki
-Natsume Yuujinchou
-Natsume Yuujinchou Go
-Natsume Yuujinchou Roku
-Natsume Yuujinchou San
-Natsume Yuujinchou Shi
-Natsume Yuujinchou Shichi
-Natsume Yuujinchou Zoku
-Natsunagu!
-Naze Boku no Sekai wo Daremo Oboeteinai no ka?
-Nazotoki wa Dinner no Ato de
-Necronomico no Cosmic Horror Show
-NEET Kunoichi to Nazeka Dousei Hajimemashita
-NegaPosi Angler
-Nejimaki Seirei Senki: Tenkyou no Alderamin
-Nekomonogatari: Kuro
-Nekomonogatari: Shiro
-Nekopara
-Net-juu no Susume
-Netoge no Yome wa Onnanoko ja Nai to Omotta?
-New Game!
-New Game! Season 2
-NHK ni Youkoso!
-Nichijou
-Niehime to Kemono no Ou
-NieR:Automata Ver1.1a
-NieR:Automata Ver1.1a Part 2
-Nige Jouzu no Wakagimi
-Nihon e Youkoso Elf-san.
-Nijiiro Days
-Ningen Fushin no Boukensha-tachi ga Sekai wo Sukuu you desu
-Ninja Kamui
-Ninja to Koroshiya no Futarigurashi
-Nisekoi
-Nisekoi: Season 2
-Nisemonogatari
-No Game No Life
-No Game No Life: Zero
-No Guns Life
-No Guns Life Season 2
-No.6
-Noblesse
-Nobunaga the Fool
-Nobunaga-sensei no Osanazuma
-Nobunagun
-Nodame Cantabile
-Nodame Cantabile: Finale
-Nodame Cantabile: Paris-hen
-Nokemono-tachi no Yoru
-Nomad: Megalo Box 2
-Non Non Biyori
-Non Non Biyori Nonstop
-Non Non Biyori Repeat
-Nora to Oujo to Noraneko Heart
-Noragami Aragoto
-Noragami
-NouCom
-Noukin
-Noumin Kanren no Skill bakka Agetetara Nazeka Tsuyoku Natta.
-Nozomanu Fushi no Boukensha
-number24
-Nyanko Days
-Occultic;Nine
-Ochikobore Fruit Tart
-Oda Cinnamon Nobunaga
-Oda Nobuna no Yabou
-Odd Taxi
-Ojou to Banken-kun
-Okaasan online
-Okashi na Tensei
-Okinawa de Suki ni Natta Ko ga Hougen Sugite Tsurasugiru
-ne Piece
-One Punch Man  
-One Punch Man Season 2
-One Room, Hiatari Futsuu, Tenshi-tsuki.
-Oneechan ga Kita  
-Oniichan dakedo Ai sae Areba Kankeinai yo ne!
-Oniichan wa Oshimai!
-Onimonogatari
-Onmyou Kaiten Re:Birth
-Ookami Shoujo to Kuro Ouji
-Ookami to Koushinryou
-Ookami to Koushinryou S2
-Ookami to Koushinryou: Merchant Meets the Wise Wolf
-Ooyukiumi no Kaina
-Orange
-Ore dake Haireru Kakushi Dungeon
-Ore ga Suki nano wa Imouto dakedo Imouto ja Nai
-Ore Monogatari!!
-Ore no Imouto ga Konnani Kawaii Wake ga Nai
-Ore no Imouto ga Konnani Kawaii Wake ga Nai. Season 2
-Ore wa Seikan Kokka no Akutoku Ryoushu!
-Ore wa Subete wo “Parry” suru
-Ore wo Suki nano wa Omae dake ka yo
-Oregairu B
-Oregairu Kan
-Oregairu Zoku
-Oreshura
-Orient
-Orient: Awajishima Gekitou-hen
-Oroka na Tenshi wa Akuma to Odoru
-Osake wa Fuufu ni Natte kara
-Osananajimi ga Zettai ni Makenai Love Comedy
-Oshi ga Budoukan Ittekuretara Shinu
-Oshi no Ko
-Oshi no Ko Season 2
-Otome Game Sekai wa Mob ni Kibishii Sekai desu
-Otonari ni Ginga
-Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken
-Otorimonogatari + Summary
-Ouran Koukou Host Club
-Ousama Ranking
-Ousama Ranking: Yuuki no Takarabako
-Outbreak Company
-Overlord
-Overlord II
-Overlord III
-Overlord IV
-Overtake!
-Owari no Seraph
-Owari no Seraph: Nagoya Kessen-hen
-Owarimonogatari
-Owarimonogatari Season 2
-Pandora Hearts
-Papa no Iukoto wo Kikinasai!
-Paripi Koumei
-Party kara Tsuihou sareta Sono Chiyushi, Jitsu wa Saikyou ni Tsuki
-Pastel Memories
-Peach Boy Riverside
-Pet
-Phantasy Star Online 2: Episode Oracle
-Phantom: Requiem for the Phantom
-Photokano
-Piano no Mori
-Piano no Mori Season 2
-Ping Pong The Animation
-Planet With
-Plastic Memories
-Plastic Neesan
-Platinum End
-Plunderer
-Pon no Michi
-Potion-danomi de Ikinobimasu!
-Prima Doll
-Princess Connect! Re:Dive
-Princess Connect! Re:Dive Season 2
-Psycho-Pass
-Psycho-Pass Season 2
-Psycho-Pass Season 3
-Puraore! Pride of Orange
-Qualidea Code
-Quanzhi Gao Shou
-Radiant
-Radiant Season 2
-Ragna Crimson
-Rail Wars!
-Raise wa Tanin ga Ii
-Rakudai Kishi no Cavalry
-Ramen Daisuki Koizumi-san
-Ranma ½ (2024)
-Re-Kan!
-Re-Main
-Re: Zero kara Hajimeru Isekai Seikatsu
-Re:Creators
-Re:Monster
-Re:Zero kara Hajimeru Isekai Seikatsu Season 2
-Re:Zero kara Hajimeru Isekai Seikatsu Season 3
-Rekishi ni Nokoru Akujo ni Naru zo
-Release the Spyce
-ReLIFE
-Renai Boukun
-Renai Flops
-Renmei Kuugun Koukuu Mahou Ongakutai Luminous Witches
-Revenger
-Rewrite
-Rewrite Season 2
-Rifle Is Beautiful
-RikeKoi
-RikeKoi Season 2
-Robotics;Notes
-Rock wa Lady no Tashinami deshite
-Rokka no Yuusha
-Rokudenashi Majutsu Koushi to Akashic Records
-Rokudou no Onna-tachi
-Rokujouma no Shinryakusha!?
-Rosario to Vampire
-Rosario to Vampire Capu2
-Rougo ni Sonaete Isekai de 8-manmai no Kinka wo Tamemasu
-Rozen Maiden
-RPG Fudousan
-Runway de Waratte
-Ruri no Houseki
-Rurouni Kenshin: Meiji Kenkaku Romantan – Kyoto Douran
-Rurouni Kenshin: Meiji Kenkaku Romantan [2023]
-Ryman’s Club
-Ryuugajou Nanana no Maizoukin
-Ryuuou no Oshigoto!
-Ryza no Atelier: Tokoyami no Joou to Himitsu no Kakurega
-S-Rank Monster no “Behemoth” dakedo
-S-Rank Musume
-Sabagebu!
-Sabikui Bisco
-Saenai Heroine no Sodatekata
-Saenai Heroine no Sodatekata Season 2
-Saihate no Paladin
-Saihate no Paladin: Tetsusabi no Yama no Ou
-Saijaku Muhai no Bahamut
-Saijaku Tamer wa Gomi Hiroi no Tabi wo Hajimemashita
-Saiki Kusuo no Ψ-nan
-Saiki Kusuo no Ψ-nan S2
-Saikin Yatotta Maid ga Ayashii
-Saikyou no Shienshoku “Wajutsushi” de Aru Ore wa Sekai Saikyou Clan wo Shitagaeru
-Saikyou Onmyouji no Isekai Tenseiki
-Saikyou Tank no Meikyuu Kouryaku
-Sakamichi no Apollon
-Sakamoto Days
-Sakamoto Days Part 2
-Sakamoto desu ga?
-Sakugan
-Sakura Quest
-Sakura Trick
-Sakurako-san no Ashimoto ni wa Shitai ga Umatteiru
-Sakurasou no Pet na Kanojo
-Salaryman ga Isekai ni Ittara Shitennou ni Natta Hanashi
-Samurai Champloo
-Sankarea
-Sarazanmai
-Sasaki to Pii-chan
-Sasayaku You ni Koi wo Utau
-Satsuriku no Tenshi
-Sayonara Watashi no Cramer
-Sayounara Ryuusei, Konnichiwa Jinsei
-Scarlet Nexus
-Scooped Up by an S-Ranked Adventurer
-Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi
-Seijo no Maryoku wa Bannou Desu
-Seijo no Maryoku wa Bannou desu Season 2
-Seiken Densetsu: Legend of Mana – The Teardrop Crystal
-Seiken Gakuin no Makentsukai
-Seiken Tsukai no World Break
-Seikimatsu Occult Gakuin
-Seikoku no Dragonar
-Seirei Gensouki
-Seirei Gensouki Season 2
-Seirei Tsukai no Blade Dance
-Seiren
-Seishun Buta Yarou wa Bunny Girl Senpai no Yume wo Minai
-Seishun Buta Yarou wa Santa Claus no Yume wo Minai
-eitokai Yakuindomo
-Seitokai Yakuindomo Season 2
-Seiyuu Radio no Uraomote
-Sekai Saikou no Ansatsusha, Isekai Kizoku ni Tensei suru
-Sekirei
-Sekirei: Pure Engagement
-Selection Project
-Sengoku Basara
-Sengoku Basara Season 2
-Sengoku Basara: Judge End
-Sengoku Otome: Momoiro Paradox
-Sengoku Youko: Senam Konton
-Sengoku Youko: Yonaoshi Kyoudai-hen
-Senpai ga Uzai Kouhai no Hanashi
-Senpai wa Otokonoko
-Senryuu Shoujo
-Sentai Daishikkaku
-Sentai Daishikkaku Season 2
-Sentai Red Isekai de Boukensha ni Naru
-Sentouin, Hakenshimasu!
-Senyoku no Sigrdrifa
-Servant x Service
-Seto no Hanayome
-Seven Knights Revolution: Eiyuu no Keishousha
-Sewayaki Kitsune no Senko-san
-Shachiku-san wa Youjo Yuurei ni Iyasaretai.
-Shachou, Battle no Jikan Desu!
-Shadows House
-Shadows House Season 2
-Shakugan no Shana
-Shakugan no Shana Season 2
-Shaman King (2021)
-Shaman King: Flowers
-Shangri-La Frontier
-Shangri-La Frontier Season 2
-Shichisei no Subaru
-Shigatsu wa Kimi no Uso B
-Shigofumi
-Shijou Saikyou no Daimaou, Murabito A ni Tensei suru
-Shikanoko Nokonoko Koshitantan
-Shiki
-Shikkakumon no Saikyou Kenja
-Shimoneta to Iu Gainen ga Sonzai Shinai Taikutsu na Sekai
-hin no Nakama ja Nai to Yuusha no Party wo Oidasareta node, Henkyou de Slow Life suru Koto ni Shimashita
-Shin no Nakama ja Nai to Yuusha no Party wo Oidasareta node, Henkyou de Slow Life suru Koto ni Shimashita Season 2
-Shin Sakura Taisen the Animation
-Shin Samurai-den Yaiba
-Shin Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei
-Shin Tennis no Oujisama: U-17 World Cup Semifinal
-Shinchou Yuusha
-Shine Post
-Shingeki no Bahamut: Genesis
-Shingeki no Bahamut: Virgin Soul
-Shingeki no Kyojin
-Shingeki no Kyojin OVA
-Shingeki no Kyojin S3
-Shingeki no Kyojin Season 2
-Shingeki no Kyojin: The Final Season – Kanketsu-hen
-hingeki no Kyojin: The Final Season
-Shingeki no Kyojin: The Final Season Part 2
-Shinigami Bocchan to Kuro Maid
-Shinigami Bocchan to Kuro Maid Season 2
-Shinigami Bocchan to Kuro Maid Season 3
-Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei
-Shinmai Ossan Boukensha, Saikyou Party ni Shinu hodo Kitaerarete Muteki ni Naru
-Shinmai Renkinjutsushi no Tenpo Keiei
-Shinobi no Ittoki
-Shinryaku! Ika Musume
-Shinryaku!? Ika Musume Season 2
-Shinsekai yori
-Shiro Seijo to Kuro Bokushi
-Shirobako
-Shiroi Suna no Aquatope
-Shironeko Project: Zero Chronicle
-Shiunji-ke no Kodomotachi
-Shokei Shoujo no Virgin Road
-Shokugeki no Souma
-Shokugeki no Souma: Gou no Sara
-Shokugeki no Souma: Ni no Sara B
-Shokugeki no Souma: San no Sara
-Shokugeki no Souma: Shin no Sara
-Shomin Sample
-Shoujo Shuumatsu Ryokou
-Shoumetsu Toshi
-Shoushimin Series
-Shoushimin Series Season 2
-Shuumatsu Nani Shitemasu ka? Isogashii desu ka? Sukutte Moratte Ii desu ka? )
-Shuumatsu no Izetta
-Shuumatsu Train Doko e Iku?
-Shy
-Shy Season 2
-Silent Witch: Chinmoku no Majo no Kakushigoto
-SK Eight
-Skip to Loafer
-Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita
-Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita: Sono Ni
-Slow Loop
-Sokushi Cheat ga Saikyou sugite
-Solo Leveling
-Solo Leveling Season 2
-Somali to Mori no Kamisama
-Sonny Boy
-Sono Bisque Doll wa Koi wo Suru
-Sono Bisque Doll wa Koi wo Suru Season 2
-Sora no Method
-Sora no Otoshimon
-Sora no Otoshimono: Forte
-Sora yori mo Tooi Basho
-Sorairo Utility (TV)
-Sore ga Seiyuu!
-Soredemo Ayumu wa Yosetekuru
-Soredemo Machi wa Mawatteiru
-Soredemo Sekai wa Utsukushii
-Soukou Musume Senki
-Sounan Desu ka?
-Sousei no Onmyouji
-Sousou no Frieren
-Spy Kyoushitsu
-Spy Kyoushitsu Season 2
-Spy x Family
-Spy x Family Part 2
-Spy x Family Season 2
-SSSS.Dynazenon
-SSSS.Gridman
-Steins;Gate 0
-Steins;Gate
-Stella no Mahou
-Strike the Blood
-Strike the Blood Season 2
-Strike Witches
-Subete ga F ni Naru: The Perfect Insider
-Sugar Apple Fairy Tale
-Sugar Apple Fairy Tale Part 2
-Suisei no Garganti
-Suki na Ko ga Megane wo Wasureta
-Sukitte Ii na yo.
-Summer Pockets
-Summertime Render
-Sunohara-sou no Kanrinin-san
-Super Cub
-Suzumiya Haruhi no Yuuutsu
-Sword Art Online
-Sword Art Online Alternative: Gun Gale Online
-Sword Art Online Alternative: Gun Gale Online S2
-Sword Art Online Movie: Ordinal Scale
-Sword Art Online Season 2
-Sword Art Online: Alicization – War of Underworld
-Sword Art Online: Alicization
-Synduality: Noir
-Taboo Tattoo
-Tada-kun wa Koi wo Shinai
-Taimadou Gakuen 35 Shiken Shoutai
-Taishou Otome Otogibanashi
-Takopii no Genzai
-Takt Op. Destiny
-Tamako Market
-Tamayomi
-Tanaka-kun wa Itsumo Kedaruge
-Tantei wa Mou, Shindeiru.
-Tasogare Otome x Amnesia
-Tasokare Hotel
-Tasuuketsu
-Tate no Yuusha no Nariagari
-Tate no Yuusha no Nariagari Season 2
-Tate no Yuusha no Nariagari Season 3
-Tate no Yuusha no Nariagari Season 4
-Tatoeba Last Dungeon Mae no Mura no Shounen ga Joban no Machi de Kurasu Youna Monogatari
-Tearmoon Teikoku Monogatari
-Tejina-senpai
-Temple
-Tengen Toppa Gurren Lagann
-Tengoku Daimakyou
-Tenkuu Shinpan
-Tensai Ouji no Akaji Kokka Saisei Jutsu
-Tensei Kenja no Isekai Life
-Tensei Kizoku no Isekai Boukenroku: Jichou wo Shiranai Kamigami no Shito
-Tensei Kizoku, Kantei Skill de Nariagaru
-Tensei Kizoku, Kantei Skill de Nariagaru Season 2
-Tensei Oujo to Tensai Reijou no Mahou Kakumei
-Tensei shitara Dainana Ouji Datta node
-Tensei shitara Dainana Ouji Datta node Season 2
-Tensei shitara Ken Deshita
-Tensei shitara Slime Datta Ken
-Tensei shitara Slime Datta Ken Season 2
-Tensei shitara Slime Datta Ken Season 3
-Tensei shitara Slime Datta Ken: Coleus no Yume
-ensui no Sakuna-hime
-Tensura Nikki: Tensei shitara Slime Datta Ken
-Teogonia
-Teppen!!!!!!!!!!!!!!!
-Terra Formars
-Terra Formars: Revenge
-The Beginning After the End
-The Fable
-The iDOLM@STER
-The iDOLM@STER Million Live!
-The iDOLM@STER Shiny Colors
-The iDOLM@STER Shiny Colors Season 2
-The Legend of Heroes: Sen no Kiseki – Northern War
-The Marginal Service
-The New Gate
-The World God Only Knows
-The World God Only Knows Season 2
-The World God Only Knows: Megami-hen (Season 3)
-o Be Hero X
-To LOVE-R
-To LOVE-Ru Darkness
-To LOVE-Ru Darkness S2  
-To LOVE-Ru Season 2
-Toaru Kagaku no Accelerator
-Toaru Kagaku no Railgun
-Toaru Kagaku no Railgun S
-Toaru Kagaku no Railgun T
-Toaru Majutsu no Index
-Toaru Majutsu no Index S2
-Toaru Majutsu no Index S3
-Toaru Ossan no VRMMO Katsudouki
-Tokidoki Bosotto Russia-go de Dereru Tonari no Alya-san
-Tokunana
-Tokyo 24-ku
-Tokyo ESP
-Tokyo Ghoul
-Tokyo Ghoul Season 2
-Tokyo Ghoul:re
-Tokyo Ghoul:re Season 2
-Tokyo Magnitude 8.0
-Tokyo Ravens
-Tokyo Revengers
-Tokyo Revengers: Seiya Kessen-hen
-Tokyo Revengers: Tenjiku-hen
-Tomo-chan wa Onnanoko!
-Tomodachi Game
-Tonari no Kaibutsu-kun B
-Tonari no Kyuuketsuki-san
-Tonari no Seki-kun
-Tonari no Youkai-san
-Tondemo Skill de Isekai Hourou Meshi
-Tonikaku Kawaii
-Tonikaku Kawaii Season 2
-Tonikaku Kawaii: Joshikou-hen
-Toradora! B
-Tougen Anki
-Touhai: Ura Rate Mahjong Touhai Roku
-Touken Ranbu Kai: Kyoden Moyuru Honnouji
-Tribe Nine
-Trillion Game
-Trinity Seven
-True Tears
-Tsue to Tsurugi no Wistoria
-Tsugu Tsugumomo
-Tsuihousha Shokudou e Youkoso!
-Tsuki ga Kirei
-Tsuki ga Michibiku Isekai Douchuu
-Tsuki ga Michibiku Isekai Douchuu Season 2
-Tsuki to Laika to Nosferatu
-Tsukimonogatari
-Tsuma, Shougakusei ni Naru.
-Tsunlise
-Tsurezure Children
-Tsuritama
-Tsurune: Kazemai Koukou Kyuudoubu
-Tsurune: Tsunagari no Issha
-Tsuyokute New Saga
-Übel Blatt
-Uchi no Kaisha no Chiisai Senpai no Hanashi
-Uchi no Maid ga Uzasugiru!
-UchiMusume
-Uchitama
-Uchouten Kazoku
-Uchouten Kazoku Season 2
-Uchuujin MuuMuu
-Ueno-san wa Bukiyou
-Ulysses: Jehanne Darc to Renkin no Kishi
-Uma Musume: Cinderella Gray
-Uma Musume: Pretty Derby – Road to the Top
-Uma Musume: Pretty Derby
-Uma Musume: Pretty Derby Season 2
-Uma Musume: Pretty Derby Season 3
-Umineko no Naku Koro ni
-Undead Girl Murder Farce
-Undead Unluck
-Under Ninja
-Unnamed Memory
-Unnamed Memory Act.2
-Uramichi Oniisan
-Urara Meirochou
-Urasekai Picnic
-Urusei Yatsura (2022)
-Usagi Drop
-Ushio to Tora
-Ushio to Tora Season 2
-Utagoe wa Mille-Feuille
-Utawarerumono: Futari no Hakuoro
-Uzaki-chan wa Asobitai!
-Uzaki-chan wa Asobitai! Double
-Uzumaki
-Val x Love
-Vampire Dormitory
-Vanitas no Carte
-Vanitas no Karte Season 2
-Vigilante: Boku no Hero Academia Illegals
-Vinland Saga
-Vinland Saga Season 2
-Violet Evergarden B
-Visual Prison
-ViVid Strike!
-Vividred Operation
-Vivy: Fluorite Eye’s Song
-VTuber Nandaga Haishin Kiri Wasuretara Densetsu ni Natteta
-W’z
-Warau Arsnotoria Sun!
-Watamote
-Watanare
-Watari-kun no xx ga Houkai Sunzen
-Watashi ga Motete Dousunda
-Watashi ni Tenshi ga Maiorita!
-Watashi no Oshi wa Akuyaku Reijou.
-Watashi no Shiawase na Kekkon
-Watashi no Shiawase na Kekkon Season 2
-Watashi no Yuri wa Oshigoto desu!
-White Album 2
-Wind Breaker
-Wind Breaker Season 2
-Witch Craft Works
-Witch Watch
-Wizard Barristers: Benmashi Cecil
-Wonder Egg Priority
-Working!!
-Working!! Season 2
-Working!! Season 3 B
-World Dai Star
-World Trigger Season 2
-World Trigger Season 3
-Wotaku ni Koi wa Muzukashii
-WWW.Working!!
-Yagate Kimi ni Naru
-Yakunara Mug Cup mo
-Yakusoku no Neverland
-Yakusoku no Neverland Season 2
-Yama no Susume: Next Summit
-Yamada-kun to 7-nin no Majo
-Yamada-kun to Lv999 no Koi wo Suru
-Yami Healer
-Yarinaoshi Reijou wa Ryuutei Heika wo Kouryakuchuu
-Yatogame-chan Kansatsu Nikki Nisatsume
-Yesterday wo Utatte
-Yofukashi no Uta
-Yofukashi no Uta Season 2
-Yojouhan Shinwa Taikei
-Yoru no Kurage wa Oyogenai
-Youjo Senki
-Youkai Gakkou no Sensei Hajimemashita!
-Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e
-Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e Season 2
-Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e Season 3
-Your Forma
-Yowamushi Pedal: Limit Break
-Yozakura-san Chi no Daisakusen
-Yubisaki to Renren
-Yumemiru Danshi wa Genjitsushugisha
-Yuragi-sou no Yuuna-san
-Yuri Kuma Arashi
-Yuri!!! on Ice
-Yuru Camp△
-Yuru Camp△ Season 2
-Yuru Camp△ Season 3
-Yuru Yuri
-Yuru Yuri San☆Hai!
-Yuru Yuri Season 2
-Yuuki Bakuhatsu Bang Bravern
-Yuusha ga Shinda!
-Yuusha Party wo Tsuihou sareta Beast Tamer
-Yuusha, Yamemasu  
-Yuzuki-san Chi no Yonkyoudai.
-Z/X: Code Reunion
-Zankyou no Terror
-Zatsu Tabi: That’s Journey
-Zenshuu.
-Zero kara Hajimeru Mahou no Sho
-Zero no Tsukaima
-Zero no Tsukaima F
-Zero no Tsukaima: Futatsuki no Kishi
-Zero no Tsukaima: Princesses no Rondo
-Zetsuen no Tempest
-Zettai Karen Children: The Unlimited – Hyoubu Kyousuke
-oku Owarimonogatari
-Zom 100: Zombie ni Naru made ni Shitai 100 no Koto
-Zombieland Saga
-Zombieland Saga Revenge
-Zutaboro Reijou wa Ane no Moto Konyakusha ni Dekiai sareru
+{
+    "#Compass 2.0: Sentou Setsuri Kaiseki System": 0,
+    "100-man no Inochi no Ue ni Ore wa Tatteiru": 1,
+    "16bit Sensation: Another Layer": 2,
+    "2.43: Seiin Koukou Danshi Volley-bu": 3,
+    "11eyes": 4,
+    "22/7": 5,
+    "3D Kanojo: Real Girl": 6,
+    "3-gatsu no Lion": 7,
+    "3-gatsu no Lion Season 2": 8,
+    "2.5-jigen no Ririsa": 9,
+    "4-nin wa Sorezore Uso wo Tsuku": 10,
+    "3D Kanojo: Real Girl Season 2": 11,
+    "86": 12,
+    "86 Season 2": 13,
+    "91 Days": 14,
+    "A-Channel": 15,
+    "AICO Incarnation": 16,
+    "Absolute Duo": 17,
+    "ACCA: 13-ku Kansatsu-ka": 18,
+    "A-Rank Party wo Ridatsu shita Ore wa": 19,
+    "Acro Trip": 20,
+    "Acchi Kocchi": 21,
+    "Adachi to Shimamura": 22,
+    "Accel World": 23,
+    "Aharen-san wa Hakarenai": 24,
+    "Aharen-san wa Hakarenai Season 2": 25,
+    "Aho Girl": 26,
+    "Ajin": 27,
+    "Ajin Season 2": 28,
+    "Akagami no Shirayuki-hime": 29,
+    "Akagami no Shirayuki-hime Season 2": 30,
+    "Akaneiro ni Somaru Saka": 31,
+    "Akanesasu Shoujo": 32,
+    "Akame ga Kill!": 33,
+    "Ahiru no Sora": 34,
+    "AKB0048": 35,
+    "Akebi-chan no Sailor-fuku": 36,
+    "AKB0048 Season 2": 37,
+    "Akatsuki no Yona": 38,
+    "Akiba Maid Sensou": 39,
+    "Akudama Drive": 40,
+    "Aku no Hana": 41,
+    "Akuma no Riddle": 42,
+    "Akuyaku Reijou Level 99": 43,
+    "Akkun to Kanojo": 44,
+    "Akuyaku Reijou Tensei Ojisan": 45,
+    "Akuyaku Reijou nanode Last Boss wo Kattemimashita": 46,
+    "Aldnoah Zero Season 2": 47,
+    "Aldnoah Zero": 48,
+    "Amaama to Inazuma": 49,
+    "Amagami SS Season 2": 50,
+    "Amanchu": 51,
+    "Amanchu! Season 2": 52,
+    "Amagami SS": 53,
+    "Amagami-san Chi no Enmusubi": 54,
+    "Ame to Kimi to": 55,
+    "Ameku Takao no Suiri Karte": 56,
+    "Ange Vierge": 57,
+    "Anima Yell!": 58,
+    "Angel Beats": 59,
+    "Anne Happy": 60,
+    "Animegataris": 61,
+    "Another World": 62,
+    "Ano Natsu de Matteru": 63,
+    "AnoHana": 64,
+    "Another": 65,
+    "Ansatsu Kyoushitsu": 66,
+    "Ao Haru Ride": 67,
+    "Ansatsu Kyoushitsu Season 2": 68,
+    "Ao Ashi": 69,
+    "Ao no Exorcist Season 2": 70,
+    "Ao no Exorcist Season 3": 71,
+    "Ao no Exorcist": 72,
+    "Ao no Exorcist Season 4": 73,
+    "Ao no Kanata no Four Rhythm": 74,
+    "Aoi Bungaku Series": 75,
+    "Aoki Hagane no Arpeggio: Ars Nova": 76,
+    "Ao no Hako": 77,
+    "Apocalypse Hotel": 78,
+    "Ao no Orchestra": 79,
+    "Appare Ranman": 80,
+    "Arakawa Under the Bridge Season 2": 81,
+    "Araburu Kisetsu no Otome-domo yo": 82,
+    "Arcana Famiglia": 83,
+    "Arakawa Under the Bridge": 84,
+    "Arifureta": 85,
+    "Arknights: Reimei Zensou": 86,
+    "Arknights Season 2": 87,
+    "Arifureta Shokugyou de Sekai Saikyou Season 2": 88,
+    "Arifureta Shokugyou de Sekai Saikyou Season 3": 89,
+    "Arknights Season 3": 90,
+    "Ars no Kyojuu": 91,
+    "Around 40 Otoko no Isekai Tsuuhan": 92,
+    "Arslan Senki Season 2": 93,
+    "Arte": 94,
+    "Aru Majo ga Shinu Made": 95,
+    "Assassins Pride": 96,
+    "Arslan Senki": 97,
+    "Asobi Asobase": 98,
+    "Astro Note": 99,
+    "Assault Lily: Bouquet": 100,
+    "Asu no Yoichi!": 101,
+    "Ayakashi Triangle": 102,
+    "Atri: My Dear Moments": 103,
+    "Azur Lane": 104,
+    "B-gata H-kei": 105,
+    "Babylon": 106,
+    "Back Street Girls: Gokudolls": 107,
+    "Baccano!": 108,
+    "Bad Girl": 109,
+    "Baka to Test to Shoukanjuu": 110,
+    "Back Arrow": 111,
+    "Baka to Test to Shoukanjuu Season 2": 112,
+    "Bakemonogatari": 113,
+    "Baki": 114,
+    "Bakuman": 115,
+    "Bakuman Season 2": 116,
+    "Bakuman Season 3": 117,
+    "Ballroom e Youkoso": 118,
+    "BanG Dream!": 119,
+    "BanG Dream! Ave Mujica": 120,
+    "BanG Dream! It's MyGO!!!!!": 121,
+    "Banana Fish": 122,
+    "BanG Dream! Season 2": 123,
+    "Bang Dream Season 3": 124,
+    "Barakamon": 125,
+    "Bartender: Kami no Glass": 126,
+    "Beastars": 127,
+    "Beastars Season 2": 128,
+    "Beelzebub-jou no Okinimesu mama": 129,
+    "Bem": 130,
+    "Beatless": 131,
+    "Ben-To": 132,
+    "Benriya Saitou-san, Isekai ni Iku": 133,
+    "Berserk: Ougon Jidai-hen - Memorial Edition": 134,
+    "Binbougami ga": 135,
+    "Birdie Wing: Golf Girls' Story": 136,
+    "Birdie Wing: Golf Girls' Story Season 2": 137,
+    "Black Bullet": 138,
+    "Black Lagoon": 139,
+    "Black\u2605\u2605Rock Shooter: Dawn Fall": 140,
+    "Black Rock Shooter": 141,
+    "Beelzebub": 142,
+    "Bleach: Sennen Kessen-hen Part 2": 143,
+    "Blade & Soul": 144,
+    "Bleach: Sennen Kessen-hen": 145,
+    "Bleach: Sennen Kessen-hen Part 3": 146,
+    "Blend S": 147,
+    "Blood Lad": 148,
+    "Blue Archive the Animation": 149,
+    "Blood C": 150,
+    "Blue Period": 151,
+    "Blue Lock Season 2": 152,
+    "Bocchi the Rock!": 153,
+    "Blue Lock": 154,
+    "Bofuri Season 2": 155,
+    "Bofuri": 156,
+    "Boku dake ga Inai Machi": 157,
+    "Boku no Hero Academia": 158,
+    "Boku no Hero Academia Season 3": 159,
+    "Boku no Hero Academia Season 2": 160,
+    "Boku no Hero Academia Season 4": 161,
+    "Boku no Hero Academia Season 5": 162,
+    "Boku no Kanojo ga Majimesugiru Sho-bitch na Ken": 163,
+    "Boku no Hero Academia Season 7": 164,
+    "Boku no Hero Academia Season 6": 165,
+    "Boku no Kokoro no Yabai Yatsu": 166,
+    "Boku no Kokoro no Yabai Yatsu Season 2": 167,
+    "Boku no Tsuma wa Kanjou ga Nai": 168,
+    "Boku wa Tomodachi ga Sukunai": 169,
+    "Boku wa Tomodachi ga Sukunai Season 2": 170,
+    "Bokuhaka": 171,
+    "Bokura no Ameiro Protocol": 172,
+    "Bokura wa Minna Kawaisou": 173,
+    "Bokutachi no Remake": 174,
+    "Bokura ga Ita": 175,
+    "Black Clover": 176,
+    "Bokutachi wa Benkyou ga Dekinai": 177,
+    "Bokutachi wa Benkyou ga Dekinai Season 2": 178,
+    "Boogiepop wa Warawanai": 179,
+    "Botsuraku Yotei no Kizoku dakedo": 180,
+    "Boushoku no Berserk": 181,
+    "BNA": 182,
+    "Btooom!": 183,
+    "Bounen no Xamdou": 184,
+    "Bucchigire!": 185,
+    "Bucchigiri?!": 186,
+    "Buddy Complex": 187,
+    "Buddy Daddies": 188,
+    "Bungou Stray Dogs": 189,
+    "Bungo Stray Dogs Season 2": 190,
+    "Bungou Stray Dogs Season 3": 191,
+    "Bungou Stray Dogs Season 5": 192,
+    "Bungou Stray Dogs Season 4": 193,
+    "Bungou to Alchemist: Shinpan no Haguruma": 194,
+    "Busou Shoujo Machiavellianism": 195,
+    "Buta no Liver wa Kanetsu Shiro": 196,
+    "Bye Bye, Earth": 197,
+    "Bye Bye, Earth Season 2": 198,
+    "Caligula": 199,
+    "Campione": 200,
+    "C3": 201,
+    "Canaan": 202,
+    "Centaur no Nayami": 203,
+    "Chain Chronicle": 204,
+    "Chainsaw Man": 205,
+    "Carole & Tuesday": 206,
+    "Charlotte": 207,
+    "Chi.: Chikyuu no Undou ni Tsuite": 208,
+    "Chihayafuru": 209,
+    "Chihayafuru Season 2": 210,
+    "Chihayafuru Season 3": 211,
+    "Chio-chan no Tsuugakuro": 212,
+    "Chiyu Mahou no Machigatta Tsukaikata": 213,
+    "Chou Kadou Girl 1/6": 214,
+    "Choujigen Game Neptune The Animation": 215,
+    "Choyoyu": 216,
+    "Chuubyou Gekihatsu Boy": 217,
+    "Chuunibyou demo Koi ga Shitai": 218,
+    "Circlet Princess": 219,
+    "Chuunibyou demo Koi ga Shitai! Season 2": 220,
+    "Citrus": 221,
+    "Class no Daikirai na Joshi to Kekkon suru Koto ni Natta": 222,
+    "Clannad": 223,
+    "Clannad Season 2": 224,
+    "Clockwork Planet": 225,
+    "Claymore": 226,
+    "Code Geass: Dakkan no Roze": 227,
+    "Comet Lucifer": 228,
+    "Comic Girls": 229,
+    "Code Geass": 230,
+    "Code Geass Season 2": 231,
+    "Cop Craft": 232,
+    "Coppelion": 233,
+    "Cool Doji Danshi": 234,
+    "D_Cide Traumerei the Animation": 235,
+    "Cross Ange": 236,
+    "D-Frag!": 237,
+    "Cue!": 238,
+    "Dagashi Kashi": 239,
+    "Dagashi Kashi Season 2": 240,
+    "Daitoshokan no Hitsujikai": 241,
+    "Dakara Boku wa H ga Dekinai": 242,
+    "Dance Dance Danseur": 243,
+    "Dandadan": 244,
+    "Danganronpa 3: Mirai-hen": 245,
+    "Danganronpa 3: Zetsubou-hen": 246,
+    "Danganronpa: The Animation": 247,
+    "Danjo no Yuujou wa Seiritsu suru?": 248,
+    "DanMachi": 249,
+    "Danmachi Season 2": 250,
+    "Boruto": 251,
+    "Danmachi Season 3": 252,
+    "Danna ga Nani wo Itteiru ka Wakaranai Ken Season 2": 253,
+    "Danshi Koukousei no Nichijou": 254,
+    "Dantalian no Shoka": 255,
+    "Darker than Black Season 2": 256,
+    "Dark Gathering": 257,
+    "Darker than Black": 258,
+    "Darwin's Game": 259,
+    "Date A Live": 260,
+    "Darling in the FranXX": 261,
+    "Date A Live Season 2": 262,
+    "Date A Live Season 3": 263,
+    "Date A Live Season 4": 264,
+    "Date A Live Season 5": 265,
+    "Dead Mount Death Play": 266,
+    "Dead Mount Death Play Part 2": 267,
+    "Deadman Wonderland": 268,
+    "Deaimon": 269,
+    "Death March kara Hajimaru Isekai Kyousoukyoku": 270,
+    "Death Parade": 271,
+    "Deatte 5-byou de Battle": 272,
+    "Deca-Dence": 273,
+    "Deep Insanity: The Lost Child": 274,
+    "Dekiru Neko wa Kyou mo Yuuutsu": 275,
+    "DekiSoko": 276,
+    "Death Note": 277,
+    "Dekoboko Majo no Oyako Jijou": 278,
+    "Delico's Nursery": 279,
+    "Denki-gai no Honya-san": 280,
+    "Demi-chan wa Kataritai": 281,
+    "Denpa Onna to Seishun Otoko": 282,
+    "Denpa Kyoushi": 283,
+    "Devil May Cry": 284,
+    "Devilman Crybaby": 285,
+    "Devil Survivor 2 The Animation": 286,
+    "Densetsu no Yuusha no Densetsu": 287,
+    "Devils Line": 288,
+    "Diabolik Lovers": 289,
+    "Dimension W": 290,
+    "Diabolik Lovers Season 2": 291,
+    "Do It Yourself!!": 292,
+    "Dog Days": 293,
+    "Dolls' Frontline": 294,
+    "Domestic na Kanojo": 295,
+    "Donten ni Warau": 296,
+    "Dorohedoro": 297,
+    "Dosanko Gal wa Namara Menkoi": 298,
+    "Doukyonin wa Hiza, Tokidoki, Atama no Ue.": 299,
+    "Dr. Stone Season 3": 300,
+    "Dororo": 301,
+    "Dr. Stone": 302,
+    "Dr. Stone Season 3 Part 2": 303,
+    "Dr. Stone Season 4 Part 2": 304,
+    "Dr. Stone Season 4": 305,
+    "Dr. Stone Season 2": 306,
+    "Dragon, Ie wo Kau": 307,
+    "Dragon Crisis!": 308,
+    "Drifters": 309,
+    "Dumbbell Nan Kilo Moteru?": 310,
+    "Danmachi Gaiden: Sword Oratoria": 311,
+    "Dungeon no Naka no Hito": 312,
+    "Dungeon Meshi": 313,
+    "Durarara!! Season 4": 314,
+    "Durarara!! Season 2": 315,
+    "Durarara!!": 316,
+    "Durarara!! Season 3": 317,
+    "Edomae Elf": 318,
+    "Edens Zero": 319,
+    "Egao no Daika": 320,
+    "Edens Zero Season 2": 321,
+    "Eiyuu Kyoushitsu": 322,
+    "Eiyuuou, Bu wo Kiwameru Tame Tenseisu": 323,
+    "Eizouken ni wa Te wo Dasu na!": 324,
+    "Elfen Lied": 325,
+    "Dragon Quest": 326,
+    "Endro~!": 327,
+    "Endride": 328,
+    "Enen no Shouboutai Season 3": 329,
+    "Enen no Shouboutai": 330,
+    "Enen no Shouboutai Season 2": 331,
+    "Eromanga-sensei": 332,
+    "Escha & Logy no Atelier": 333,
+    "Etotama": 334,
+    "Ergo Proxy": 335,
+    "Fairy Gone Season 2": 336,
+    "Fairy Gone": 337,
+    "Fantasy Bishoujo Juniku Ojisan to": 338,
+    "Fairy Tail: 100 Years Quest": 339,
+    "Fate Apocrypha": 340,
+    "Fate/kaleid liner Prisma Illya Season 3": 341,
+    "Fate/Grand Order: Zettai Majuu Sensen Babylonia": 342,
+    "Fate/Kaleid Liner Prisma Illya Season 2": 343,
+    "Fate/kaleid liner Prisma Illya": 344,
+    "Fairy Tail Season 3": 345,
+    "Fate/strange Fake": 346,
+    "Fate Stay Night: Unlimited Blade Works": 347,
+    "Fate Stay Night: Unlimited Blade Works Season 2": 348,
+    "Fate/Zero": 349,
+    "Fate/Zero Season 2": 350,
+    "Flying Witch": 351,
+    "Fortune Arterial": 352,
+    "Free!": 353,
+    "Free! Season 3": 354,
+    "Free! Season 2": 355,
+    "Fruits Basket Season 3": 356,
+    "Fugou Keiji: Balance:Unlimited": 357,
+    "Fruits Basket": 358,
+    "Fruits Basket Season 2": 359,
+    "Fuguushoku \"Kanteishi\" ga Jitsu wa Saikyou Datta": 360,
+    "Fukigen na Mononokean": 361,
+    "Fukigen na Mononokean Season 2": 362,
+    "Full Metal Panic Season 3": 363,
+    "Full Metal Panic! Season 2": 364,
+    "Full Metal Panic Fumoffu": 365,
+    "Full Metal Panic!": 366,
+    "Fune wo Amu": 367,
+    "Fumetsu no Anata e": 368,
+    "Fumetsu no Anata e Season 2": 369,
+    "Futoku no Guild": 370,
+    "Futsal Boys!!!!!": 371,
+    "Fuufu Ijou, Koibito Miman.": 372,
+    "Fuuka": 373,
+    "Fuuto Tantei": 374,
+    "Gabriel DropOut": 375,
+    "Fullmetal Alchemist": 376,
+    "Gachiakuta": 377,
+    "Gaikotsu Kishi-sama, Tadaima Isekai e Odekakechuu": 378,
+    "Gakkou Gurashi!": 379,
+    "Gakuen Babysitters": 380,
+    "Gakuen Basara": 381,
+    "Gal to Kyouryuu": 382,
+    "Gakusen Toshi Asterisk": 383,
+    "Gakusen Toshi Asterisk Season 2": 384,
+    "Gangsta": 385,
+    "Gamers!": 386,
+    "Gatchaman Crowds": 387,
+    "Gatchaman Crowds Season 2": 388,
+    "GATE": 389,
+    "Gate Season 2": 390,
+    "Gegege no Kitarou": 391,
+    "Gekai Elise": 392,
+    "Gekkan Shoujo Nozaki-kun": 393,
+    "Genei wo Kakeru Taiyou": 394,
+    "Genjitsu no Yohane: Sunshine in the Mirror": 395,
+    "Genjitsu Shugi Yuusha no Oukoku Saikenki": 396,
+    "Genjitsu Shugi Yuusha no Oukoku Saikenki Season 2": 397,
+    "Gensou Sangokushi: Tengen Reishinki": 398,
+    "Getsuyoubi no Tawawa Season 2": 399,
+    "Getsuyoubi no Tawawa": 400,
+    "Gibiate": 401,
+    "Girlish Number": 402,
+    "Giji Harem": 403,
+    "Gimai Seikatsu": 404,
+    "Fairy Tail": 405,
+    "Gin no Saji": 406,
+    "Gin no Saji Season 2": 407,
+    "Ginga Eiyuu Densetsu": 408,
+    "Gingitsune": 409,
+    "Girl Friend Beta": 410,
+    "Girls und Panzer": 411,
+    "Girly Air Force": 412,
+    "Girls Band Cry": 413,
+    "Girumasu": 414,
+    "GJ-bu": 415,
+    "Gleipnir": 416,
+    "Goblin Slayer": 417,
+    "Goblin Slayer Season 2": 418,
+    "Gochuumon wa Usagi desu ka?": 419,
+    "Gochuumon wa Usagi desu ka? Season 2": 420,
+    "Gochuumon wa Usagi Desu ka? Season 3": 421,
+    "Godzilla: S.P": 422,
+    "Gokukoku no Brynhildr": 423,
+    "Golden Kamuy": 424,
+    "Golden Kamuy Season 2": 425,
+    "Golden Kamuy Season 3": 426,
+    "Golden Kamuy Season 4": 427,
+    "Gorilla no Kami kara Kago sareta Reijou wa Ouritsu Kishidan de Kawaigarareru": 428,
+    "Gotoubun no Hanayome": 429,
+    "Golden Time": 430,
+    "Gotoubun no Hanayome Season 2": 431,
+    "Goukon ni Ittara Onna ga Inakatta Hanashi": 432,
+    "Gosick": 433,
+    "Granbelm": 434,
+    "Granblue Fantasy The Animation": 435,
+    "Granblue Fantasy The Animation Season 2": 436,
+    "Grand Blue": 437,
+    "Grand Blue Season 2": 438,
+    "Grancrest Senki": 439,
+    "Grimms Notes The Animation": 440,
+    "Grisaia no Rakuen": 441,
+    "Grisaia no Kajitsu": 442,
+    "Grisaia: Phantom Trigger": 443,
+    "Gugure! Kokkuri-san": 444,
+    "Guilty Crown": 445,
+    "Gunjou no Magmel": 446,
+    "Gunjou no Fanfare": 447,
+    "Gundam Build Fighters": 448,
+    "Gundam Build Fighters Season 2": 449,
+    "Gyakuten Sekai no Denchi Shoujo": 450,
+    "Hachi-nan tte Sore wa Nai deshou!": 451,
+    "Hachigatsu no Cinderella Nine": 452,
+    "Hagure Yuusha no Aesthetica": 453,
+    "Gyakkyou Burai Kaiji Season 2": 454,
+    "Gyakkyou Burai Kaiji": 455,
+    "Hai to Gensou no Grimgar": 456,
+    "Haikyuu!! Season 3": 457,
+    "Haiyore! Nyaruko-san": 458,
+    "Haikyuu!!": 459,
+    "Haikyuu!! Season 2": 460,
+    "Haiyore! Nyaruko-san Season 2": 461,
+    "Haikyuu Season 4": 462,
+    "Hajimete no Gal": 463,
+    "Hakata Tonkotsu Ramens": 464,
+    "Hamatora Season 2": 465,
+    "Hakumei to Mikochi": 466,
+    "Hamatora The Animation": 467,
+    "Hamefura": 468,
+    "Hanamonogatari": 469,
+    "Hana wa Saku, Shura no Gotoku": 470,
+    "Hametsu no Oukoku": 471,
+    "Hamefura Season 2": 472,
+    "Hananoi-kun to Koi no Yamai": 473,
+    "Hanayamata": 474,
+    "Hanebado!": 475,
+    "Handa-kun": 476,
+    "Harukana Receive": 477,
+    "Happy Sugar Life": 478,
+    "Hanasaku Iroha": 479,
+    "Hataage! Kemono Michi": 480,
+    "Hanyou no Yashahime Season 2": 481,
+    "Hataraku Maou-sama! Season 2": 482,
+    "Hataraku Maou-sama! Season 3": 483,
+    "Hataraku Maou-sama!": 484,
+    "Hataraku Saibou": 485,
+    "Hataraku Saibou Season 2": 486,
+    "Hataraku Saibou Black (TV)": 487,
+    "Hatena Illusion": 488,
+    "Hazurewaku no \"Joutai Ijou Skill\" de Saikyou ni Natta Ore ga Subete wo Juurin suru made": 489,
+    "Healer Girl": 490,
+    "Heike Monogatari": 491,
+    "Heion Sedai no Idaten-tachi": 492,
+    "Hellsing Ultimate": 493,
+    "Heavy Object": 494,
+    "Henjin no Salad Bowl": 495,
+    "Heroine Tarumono! Kiraware Heroine to Naisho no Oshigoto": 496,
+    "Helck": 497,
+    "Heya Camp": 498,
+    "Hibi wa Sugiredo Meshi Umashi": 499,
+    "Hibike! Euphonium": 500,
+    "Hibike! Euphonium Season 2": 501,
+    "Hidan no Aria Season 2": 502,
+    "Hibike! Euphonium Season 3": 503,
+    "Hidan no Aria": 504,
+    "Higashi no Eden": 505,
+    "Higehiro": 506,
+    "High Card": 507,
+    "High Card Season 2": 508,
+    "High School DxD": 509,
+    "High School DxD Season 3": 510,
+    "High School DxD Season 4": 511,
+    "High School DxD Season 2": 512,
+    "High School Fleet": 513,
+    "High Score Girl": 514,
+    "High Score Girl Season 2": 515,
+    "Highschool of the Dead": 516,
+    "Hikari no Ou": 517,
+    "Higurashi no Naku Koro ni Sotsu": 518,
+    "Hikari no Ou Season 2": 519,
+    "Higurashi no Naku Koro ni (2020)": 520,
+    "Higurashi no Naku Koro ni": 521,
+    "Hikaru ga Shinda Natsu": 522,
+    "Hikikomari Kyuuketsuki no Monmon": 523,
+    "Himesama Goumon no Jikan desu": 524,
+    "Himouto! Umaru-chan": 525,
+    "Himouto! Umaru-chan Season 2": 526,
+    "Hinako Note": 527,
+    "Hinamatsuri": 528,
+    "Hitoribocchi no Isekai Kouryaku": 529,
+    "Hitsugi no Chaika Season 2": 530,
+    "Hitsugi no Chaika": 531,
+    "Hitoribocchi no Marumaru Seikatsu": 532,
+    "Honey Lemon Soda": 533,
+    "Honzuki no Gekokujou Season 3": 534,
+    "Honzuki no Gekokujou": 535,
+    "Honzuki no Gekokujou Season 2": 536,
+    "Horimiya": 537,
+    "Horimiya: Piece": 538,
+    "Hoshiai no Sora": 539,
+    "Hoshifuru Oukoku no Nina": 540,
+    "Hoshikuzu Telepath": 541,
+    "Hoshizora e Kakaru Hashi": 542,
+    "Hoshi no Samidare": 543,
+    "Houkago Saikoro Club": 544,
+    "Hourou Musuko": 545,
+    "Houkago Teibou Nisshi": 546,
+    "Houseki no Kuni": 547,
+    "Hyakkano Season 2": 548,
+    "Hyakkano": 549,
+    "Hyakuren no Haou to Seiyaku no Valkyria": 550,
+    "Ichiban Ushiro no Daimaou": 551,
+    "Hyouken no Majutsushi ga Sekai wo Suberu": 552,
+    "Hyouka": 553,
+    "Ichigo Mashimaro": 554,
+    "Ijiranaide, Nagatoro-san": 555,
+    "ID:Invaded": 556,
+    "Ijiranaide, Nagatoro-san Season 2": 557,
+    "Ikebukuro West Gate Park": 558,
+    "Ikenaikyo": 559,
+    "Imouto sae Ireba Ii": 560,
+    "Inari, Konkon, Koi Iroha.": 561,
+    "Infinite Dendrogram": 562,
+    "Inou-Battle wa Nichijou-kei no Naka de": 563,
+    "Inu ni Nattara Suki na Hito ni Hirowareta": 564,
+    "Inu x Boku SS": 565,
+    "Inuyashiki": 566,
+    "Inugami-san to Nekoyama-san": 567,
+    "Irozuku Sekai no Ashita kara": 568,
+    "IS: Infinite Stratos Season 2": 569,
+    "Infinite Stratos": 570,
+    "Isekai Cheat Magician": 571,
+    "Isekai de Cheat Skill wo Te ni Shita Ore wa": 572,
+    "Isekai de Mofumofu Nadenade suru Tame ni Ganbattemasu": 573,
+    "Isekai Maou to Shoukan Shoujo no Dorei Majutsu": 574,
+    "Isekai Maou to Shoukan Shoujo no Dorei Majutsu Season 2": 575,
+    "Isekai Meikyuu de Harem wo": 576,
+    "Isekai Izakaya": 577,
+    "Isekai Nonbiri Nouka": 578,
+    "Isekai Ojisan": 579,
+    "Isekai One Turn Kill Neesan": 580,
+    "Isekai Quartet": 581,
+    "Isekai Quartet Season 2": 582,
+    "Isekai Shikkaku": 583,
+    "Isekai Shokudou": 584,
+    "Isekai Shokudou Season 2": 585,
+    "Hunter x Hunter": 586,
+    "Isekai Shoukan wa Nidome desu": 587,
+    "Isekai Suicide Squad": 588,
+    "Isekai wa Smartphone to Tomo ni": 589,
+    "Isekai wa Smartphone to Tomo ni Season 2": 590,
+    "Isekai Yakkyoku": 591,
+    "Isekai Yururi Kikou": 592,
+    "Ishura": 593,
+    "Island": 594,
+    "Isshuukan Friends": 595,
+    "Isuca": 596,
+    "Iwa Kakeru": 597,
+    "Izure Saikyou no Renkinjutsushi?": 598,
+    "Jaku-Chara Tomozaki-kun": 599,
+    "Jahy-sama wa Kujikenai!": 600,
+    "Jibaku Shounen Hanako-kun": 601,
+    "Jaku-Chara Tomozaki-kun Season 2": 602,
+    "Jibaku Shounen Hanako-kun 2 Part 2": 603,
+    "Jibaku Shounen Hanako-kun Season 2": 604,
+    "Jidou Hanbaiki ni Umarekawatta Ore wa Meikyuu wo Samayou": 605,
+    "Jiisan Baasan Wakagaeru": 606,
+    "Jigokuraku": 607,
+    "Jijou wo Shiranai Tenkousei ga Guigui Kuru": 608,
+    "Jinrui wa Suitai Shimashita": 609,
+    "Jigoku Shoujo": 610,
+    "Jitsu wa Ore, Saikyou deshita?": 611,
+    "Jitsu wa Watashi wa": 612,
+    "JoJo Bizarre Adventure: Stardust Crusaders": 613,
+    "JoJo Bizarre Adventure": 614,
+    "JoJo Bizarre Adventure: Stardust Crusaders Season 2": 615,
+    "Joker Game": 616,
+    "Jormungand": 617,
+    "Jormungand Season 2": 618,
+    "JoJo Bizarre Adventure Part 4": 619,
+    "JoJo Bizarre Adventure Part 5": 620,
+    "Joshikausei": 621,
+    "Joshikousei no Mudazukai": 622,
+    "Joshiraku": 623,
+    "Joukamachi no Dandelion": 624,
+    "Jouran: The Princess of Snow and Blood": 625,
+    "Junketsu no Maria": 626,
+    "Just Because!": 627,
+    "Jujutsu Kaisen": 628,
+    "Juuou Mujin no Fafnir": 629,
+    "Jujutsu Kaisen Season 2": 630,
+    "K-On!": 631,
+    "K Season 2": 632,
+    "K-Project": 633,
+    "Kabukimonogatari": 634,
+    "K-On! Season 2": 635,
+    "Kabukichou Sherlock": 636,
+    "Kabushikigaisha Magi-Lumiere": 637,
+    "Kage no Jitsuryokusha ni Naritakute! Season 2": 638,
+    "Kage no Jitsuryokusha ni Naritakute!": 639,
+    "Kageki Shoujo!!": 640,
+    "Kaguya-sama wa Kokurasetai": 641,
+    "Kaguya-sama wa Kokurasetai Season 2": 642,
+    "Kaguya-sama wa Kokurasetai Season 3": 643,
+    "Kaifuku Jutsushi no Yarinaoshi": 644,
+    "Kaii to Otome to Kamikakushi": 645,
+    "Kaijin Kaihatsu-bu no Kuroitsu-san": 646,
+    "Kaijuu 8-gou": 647,
+    "Kaichou wa Maid-sama!": 648,
+    "Kaiko sareta Ankoku Heishi (30-dai) no Slow na Second Life": 649,
+    "Kaizoku Oujo": 650,
+    "Kakegurui": 651,
+    "Kakegurui Season 2": 652,
+    "Kakumeiki Valvrave": 653,
+    "Kakumeiki Valvrave Season 2": 654,
+    "Kakkou no Iinazuke": 655,
+    "Kakushigoto": 656,
+    "Kami wa Game ni Ueteiru": 657,
+    "Kakuriyo no Yadomeshi": 658,
+    "Kami-tachi ni Hirowareta Otoko": 659,
+    "Kami-tachi ni Hirowareta Otoko Season 2": 660,
+    "Kaminaki Sekai no Kamisama Katsudou": 661,
+    "Kamisama Dolls": 662,
+    "Kamisama ni Natta Hi": 663,
+    "Kamisama Hajimemashita": 664,
+    "Kamisama Hajimemashita Season 2": 665,
+    "Kamisama no Memochou": 666,
+    "KanColle Season 2": 667,
+    "Kamonohashi Ron no Kindan Suiri": 668,
+    "Kanchigai no Atelier Meister": 669,
+    "Kanata no Astra": 670,
+    "Kamonohashi Ron no Kindan Suiri Season 2": 671,
+    "Kannagi": 672,
+    "Kandagawa Jet Girls": 673,
+    "Kanojo mo Kanojo": 674,
+    "Kanojo ga Flag wo Oraretara": 675,
+    "Kanojo ga Koushaku-tei ni Itta Riyuu": 676,
+    "Kanojo mo Kanojo Season 2": 677,
+    "Kanojo Okarishimasu": 678,
+    "Kanojo Okarishimasu Season 3": 679,
+    "Kanojo Okarishimasu Season 2": 680,
+    "Kanojo, Okarishimasu Season 4": 681,
+    "KanColle": 682,
+    "Kanpekiseijo": 683,
+    "Kaoru Hana wa Rin to Saku": 684,
+    "Karakai Jouzu no Takagi-san": 685,
+    "Karakai Jouzu no Takagi-san Season 2": 686,
+    "Karakai Jouzu no Takagi-san Season 3": 687,
+    "Katainaka no Ossan, Kensei ni Naru": 688,
+    "Katanagatari": 689,
+    "Karasu wa Aruji wo Erabanai": 690,
+    "Katsute Kami Datta Kemono-tachi e": 691,
+    "Katsute Mahou Shoujo to Aku wa Tekitai shiteita": 692,
+    "Kawaii dake ja Nai Shikimori-san": 693,
+    "Kawaisugi Crisis": 694,
+    "Kekkai Sensen Season 2": 695,
+    "Kaze no Stigma": 696,
+    "Kekkon suru tte, Hontou desu ka": 697,
+    "Kekkai Sensen": 698,
+    "Kaze ga Tsuyoku Fuiteiru": 699,
+    "Kekkon Yubiwa Monogatari": 700,
+    "Kemono Jihen": 701,
+    "Kengan Ashura": 702,
+    "Kenja no Deshi wo Nanoru Kenja": 703,
+    "Kenja no Mago": 704,
+    "Kenka Dokugaku": 705,
+    "Keppeki Danshi! Aoyama-kun": 706,
+    "Kidou Senshi Gundam: GQuuuuuuX": 707,
+    "Kikansha no Mahou wa Tokubetsu desu": 708,
+    "Kimetsu no Yaiba Season 4": 709,
+    "Kimetsu no Yaiba: Mugen Ressha-hen": 710,
+    "Kimetsu no Yaiba Season 3": 711,
+    "Kill la Kill": 712,
+    "Kimetsu no Yaiba Season 2": 713,
+    "Kimi ni Todoke Season 3": 714,
+    "Kimetsu no Yaiba": 715,
+    "Kimi no Na wa": 716,
+    "Kimi ni Todoke Season 2": 717,
+    "Kimi wa Houkago Insomnia": 718,
+    "Kimi wa Meido-sama.": 719,
+    "Kimi ni Todoke": 720,
+    "Kimi no Iru Machi": 721,
+    "Kimisen": 722,
+    "Kimizero": 723,
+    "King's Raid: Ishi wo Tsugumono-tachi": 724,
+    "Kingdom Season 3": 725,
+    "Kingdom": 726,
+    "Kingdom Season 4": 727,
+    "Kingdom Season 5": 728,
+    "Kingdom Season 2": 729,
+    "Kiniro Mosaic": 730,
+    "Kiniro Mosaic Season 2": 731,
+    "Kino no Tabi": 732,
+    "Kinsou no Vermeil": 733,
+    "Kizumonogatari": 734,
+    "Kishuku Gakkou no Juliet": 735,
+    "Kizumonogatari 2": 736,
+    "Kizumonogatari 3": 737,
+    "Kitsutsuki Tanteidokoro": 738,
+    "Kiseijuu: Sei no Kakuritsu": 739,
+    "Kiznaiver": 740,
+    "Kizuna no Allele": 741,
+    "Kizuna no Allele Season 2": 742,
+    "Kobayashi-san Chi no Maid Dragon": 743,
+    "Knight's & Magic": 744,
+    "Kobayashi-san Chi no Maid Dragon Season 2": 745,
+    "Koi to Producer: EVOL x LOVE": 746,
+    "Koi to Senkyo to Chocolate": 747,
+    "Koi to Uso": 748,
+    "Koikimo": 749,
+    "Koi wa Ameagari no You ni": 750,
+    "Koi wa Futago de Warikirenai": 751,
+    "Koimonogatari": 752,
+    "Koi wa Sekai Seifuku no Ato de": 753,
+    "Koisuru Asteroid": 754,
+    "Komi-san wa, Comyushou desu. Season 2": 755,
+    "Komi-san wa, Comyushou desu.": 756,
+    "Kokoro Connect": 757,
+    "Konobi": 758,
+    "Kono Healer, Mendokusai": 759,
+    "Kono Kaisha ni Suki na Hito ga Imasu": 760,
+    "Kono Oto Tomare! Season 2": 761,
+    "Kono Oto Tomare!": 762,
+    "Kono Sekai wa Fukanzen Sugiru": 763,
+    "Kono Subarashii Sekai ni Bakuen wo!": 764,
+    "Konohana Kitan": 765,
+    "KonoSuba": 766,
+    "KonoSuba Season 2": 767,
+    "KonoSuba Season 3": 768,
+    "Kono Yo no Hate de Koi wo Utau Shoujo YU-NO": 769,
+    "Koori Zokusei Danshi to Cool na Douryou Joshi": 770,
+    "Kore wa Zombie Desu ka?": 771,
+    "Kore wa Zombie Desu ka? Season 2": 772,
+    "Koroshi Ai": 773,
+    "Kotoura-san": 774,
+    "Koufuku Graffiti": 775,
+    "Koukyuu no Karasu": 776,
+    "Koutetsujou no Kabaneri": 777,
+    "Kubikiri Cycle: Aoiro Savant to Zaregototsukai": 778,
+    "Kowloon Generic Romance": 779,
+    "Koyomimonogatari": 780,
+    "Kubo-san wa Mob wo Yurusanai": 781,
+    "Kujira no Kora wa Sajou ni Utau": 782,
+    "Kuma Kuma Kuma Bear": 783,
+    "Kuma Kuma Kuma Bear Season 2": 784,
+    "Kumichou Musume to Sewagakari": 785,
+    "Kunoichi Tsubaki no Mune no Uchi": 786,
+    "Kuro no Shoukanshi": 787,
+    "Kuroiwa Medaka ni Watashi no Kawaii ga Tsuujinai": 788,
+    "Kuroko no Basket Last Game": 789,
+    "Kumo Desu ga, Nani ka?": 790,
+    "Kuroko no Basket": 791,
+    "Kuroko no Basket Season 2": 792,
+    "Kuroshitsuji Movie: Book of the Atlantic": 793,
+    "Kuroko no Basket Season 3": 794,
+    "Kuroshitsuji": 795,
+    "Kuromukuro": 796,
+    "Kuroshitsuji Season 2": 797,
+    "Kuroshitsuji: Kishuku Gakkou-hen": 798,
+    "Kuroshitsuji: Midori no Majo-hen": 799,
+    "Kuutei Dragons": 800,
+    "Kusuriya no Hitorigoto": 801,
+    "Kuusen Madoushi Kouhosei no Kyoukan": 802,
+    "Kuzu no Honkai": 803,
+    "Kusuriya no Hitorigoto Season 2": 804,
+    "Kyokou Suiri": 805,
+    "Kyoukai no Kanata": 806,
+    "Kyokou Suiri Season 2": 807,
+    "Kyoukai Senki": 808,
+    "Kyoukai Senki Part 2": 809,
+    "Kyoukaisenjou no Horizon": 810,
+    "Kyuujitsu no Warumono-san": 811,
+    "Kyoukaisenjou no Horizon Season 2": 812,
+    "Kyuuketsuki Sugu Shinu": 813,
+    "Kyuuketsuki Sugu Shinu Season 2": 814,
+    "Kyuukyoku Shinka shita Full Dive RPG ga Genjitsu yori mo Kusoge Dattara": 815,
+    "Last Period": 816,
+    "Lapis Re:LiGHTs": 817,
+    "Lastame": 818,
+    "Leadale no Daichi nite": 819,
+    "Level 1 dakedo Unique Skill de Saikyou desu": 820,
+    "Liar Liar": 821,
+    "Listeners": 822,
+    "Little Busters! EX": 823,
+    "Little Busters! Season 2": 824,
+    "Little Busters!": 825,
+    "Log Horizon Season 3": 826,
+    "Loop 7-kaime no Akuyaku Reijou wa": 827,
+    "Little Witch Academia": 828,
+    "Log Horizon": 829,
+    "Log Horizon Season 2": 830,
+    "Lost Song": 831,
+    "Lord El-Melloi II Sei no Jikenbo: Rail Zeppelin Grace Note": 832,
+    "Love Lab": 833,
+    "Love Live! Nijigasaki Gakuen School Idol Doukoukai": 834,
+    "Love All Play": 835,
+    "Love Live! Nijigasaki Gakuen School Idol Doukoukai Season 2": 836,
+    "Love Live!": 837,
+    "Love Live! Season 2": 838,
+    "Love Live! Sunshine!!": 839,
+    "Love Live! Sunshine!! Season 2": 840,
+    "Love Live! Superstar!!": 841,
+    "Love Live! Superstar!! Season 2": 842,
+    "Love Live! Superstar!! Season 3": 843,
+    "Lv1 Maou to One Room Yuusha": 844,
+    "Lycoris Recoil": 845,
+    "Lv2 kara Cheat datta Motoyuusha Kouho no Mattari Isekai Life": 846,
+    "Machikado Mazoku": 847,
+    "Lovely Complex": 848,
+    "Machikado Mazoku Season 2": 849,
+    "Machine-Doll wa Kizutsukanai": 850,
+    "Made in Abyss": 851,
+    "Madan no Ou to Vanadis": 852,
+    "Made in Abyss Season 2": 853,
+    "Madougushi Dahliya wa Utsumukanai": 854,
+    "Maebashi Witches": 855,
+    "Magi: Sinbad no Bouken": 856,
+    "Magia Record": 857,
+    "Magia Record Season 2": 858,
+    "Magic Maker: Isekai Mahou no Tsukurikata": 859,
+    "Magi: The Kingdom of Magic": 860,
+    "Magi: The Labyrinth of Magic": 861,
+    "Mahou Sensou": 862,
+    "Mahou Shoujo Madoka Magica": 863,
+    "Mahou Shoujo Ikusei Keikaku": 864,
+    "Mahou Shoujo Magical Destroyers": 865,
+    "Mahou Shoujo ni Akogarete": 866,
+    "Mahou Shoujo Ore": 867,
+    "Mahou Shoujo Site": 868,
+    "Mahou Shoujo Tokushusen Asuka": 869,
+    "Mahouka Koukou no Rettousei Season 3": 870,
+    "Mahouka Koukou no Rettousei": 871,
+    "Mahouka Koukou no Yuutousei": 872,
+    "Mahouka Koukou no Rettousei Season 2": 873,
+    "Mahoutsukai no Yome Season 2": 874,
+    "Mahoutsukai no Yome": 875,
+    "Mahoutsukai Reimeiki": 876,
+    "Mahoutsukai no Yome Season 2 Part 2": 877,
+    "Mairimashita! Iruma-kun": 878,
+    "Majo no Tabitabi": 879,
+    "Majo to Yajuu": 880,
+    "Mairimashita! Iruma-kun Season 2": 881,
+    "Mairimashita! Iruma-kun Season 3": 882,
+    "Majutsushi Orphen Hagure Tabi": 883,
+    "Majutsushi Orphen Hagure Tabi Season 4": 884,
+    "Make Heroine ga Oosugiru!": 885,
+    "Mamahaha no Tsurego ga Motokano datta": 886,
+    "Majutsushi Orphen Hagure Tabi Season 3": 887,
+    "Manaria Friends": 888,
+    "Maou 2099": 889,
+    "Mangaka-san to Assistant-san to The Animation": 890,
+    "Maou Gakuin no Futekigousha": 891,
+    "Maou Gakuin no Futekigousha Season 2": 892,
+    "Maou Gakuin no Futekigousha Season 2 Part 2": 893,
+    "Madome": 894,
+    "Maou-sama Retry!": 895,
+    "Maou-sama, Retry! Season 2": 896,
+    "Maougun Saikyou no Majutsushi wa Ningen datta": 897,
+    "Maoujou de Oyasumi": 898,
+    "Maoyuu Maou Yuusha": 899,
+    "Masamune-kun no Revenge": 900,
+    "Mashiro no Oto": 901,
+    "Masamune-kun no Revenge Season 2": 902,
+    "Mashle": 903,
+    "Mashle Season 2": 904,
+    "Mato Seihei no Slave": 905,
+    "Mayo Chiki!": 906,
+    "Mayonaka no Occult Koumuin": 907,
+    "Mecha-ude (TV)": 908,
+    "Mayonaka Punch": 909,
+    "Mawaru Penguindrum": 910,
+    "Medaka Box Season 2": 911,
+    "Medalist": 912,
+    "Medaka Box": 913,
+    "Megalo Box": 914,
+    "Megami no Cafe Terrace": 915,
+    "Megami-ryou no Ryoubo-kun": 916,
+    "Megami no Cafe Terrace Season 2": 917,
+    "Meiji Tokyo Renka": 918,
+    "Megumi no Daigo: Kyuukoku no Orange": 919,
+    "Mekakucity Actors": 920,
+    "Meikyuu Black Company": 921,
+    "Metallic Rouge": 922,
+    "MF Ghost": 923,
+    "Midara na Ao-chan wa Benkyou ga Dekinai": 924,
+    "MF Ghost Season 2": 925,
+    "Mieruko-chan": 926,
+    "Migi to Dali": 927,
+    "Mikadono Sanshimai wa Angai, Choroi.": 928,
+    "Minami-ke": 929,
+    "Mikakunin de Shinkoukei": 930,
+    "Minami-ke Season 3": 931,
+    "Minami-ke Season 2": 932,
+    "Minami-ke Season 4": 933,
+    "Mitsuboshi Colors": 934,
+    "MM!": 935,
+    "Mob kara Hajimaru Tansaku Eiyuutan": 936,
+    "Mob Psycho 100": 937,
+    "Mob Psycho 100 Season 2": 938,
+    "Mirai Nikki": 939,
+    "Mob Psycho 100 Season 3": 940,
+    "Mobile Suit Gundam: The Witch from Mercury Season 2": 941,
+    "Mobile Suit Gundam: The Witch from Mercury": 942,
+    "Mondaiji-tachi": 943,
+    "Mono": 944,
+    "Momochi-san Chi no Ayakashi Ouji": 945,
+    "Mononogatari": 946,
+    "Monogatari Series: Off & Monster Season": 947,
+    "Mononogatari Season 2": 948,
+    "Monster Musume no Oishasan": 949,
+    "Mou Ippon!": 950,
+    "Mousou Dairinin": 951,
+    "Murenase Seton Gakuen": 952,
+    "Munou na Nana": 953,
+    "Mushikaburi-hime": 954,
+    "Mugen no Juunin: Immortal": 955,
+    "Musaigen no Phantom World": 956,
+    "Mushishi Season 2": 957,
+    "Mushishi Season 3": 958,
+    "Mushoku Tensei Season 2": 959,
+    "Mushoku Tensei Season 2 Part 2": 960,
+    "Mushoku Tensei: Isekai Ittara Honki Dasu": 961,
+    "Mushishi": 962,
+    "Mushoku Tensei: Isekai Ittara Honki Dasu Part 2": 963,
+    "Muv-Luv Alternative": 964,
+    "Muv-Luv Alternative Season 2": 965,
+    "My Home Hero": 966,
+    "Na Nare Hana Nare": 967,
+    "Nageki no Bourei wa Intai shitai": 968,
+    "Muv-Luv Alternative: Total Eclipse": 969,
+    "Nakanohito Genome": 970,
+    "Nami yo Kiitekure": 971,
+    "Nagi no Asukara": 972,
+    "Nanatsu no Maken ga Shihai suru": 973,
+    "Nanatsu no Taizai": 974,
+    "Nanatsu no Taizai Season 2": 975,
+    "Nanatsu no Taizai Season 4": 976,
+    "Nanatsu no Taizai Season 3": 977,
+    "Nanatsu no Taizai: Mokushiroku no Yonkishi": 978,
+    "Nanatsu no Taizai: Mokushiroku no Yonkishi S2": 979,
+    "Nanbaka Season 2": 980,
+    "Nanbaka": 981,
+    "Nande Koko ni Sensei ga!?": 982,
+    "Natsuiro Kiseki": 983,
+    "Natsume Yuujinchou": 984,
+    "Natsume Yuujinchou Season 5": 985,
+    "Natsume Yuujinchou Season 6": 986,
+    "Natsume Yuujinchou Season 3": 987,
+    "Natsume Yuujinchou Season 4": 988,
+    "Natsume Yuujinchou Season 7": 989,
+    "Natsume Yuujinchou Season 2": 990,
+    "Natsunagu": 991,
+    "Naze Boku no Sekai wo Daremo Oboeteinai no ka?": 992,
+    "Necronomico no Cosmic Horror Show": 993,
+    "Nazotoki wa Dinner no Ato de": 994,
+    "Nekomonogatari: Kuro": 995,
+    "Nekomonogatari: Shiro": 996,
+    "NegaPosi Angler": 997,
+    "Nejimaki Seirei Senki: Tenkyou no Alderamin": 998,
+    "Nekopara": 999,
+    "Net-juu no Susume": 1000,
+    "Netoge no Yome wa Onna no Ko ja Nai to Omotta": 1001,
+    "New Game!": 1002,
+    "New Game! Season 2": 1003,
+    "NieR Automata": 1004,
+    "NHK ni Youkoso!": 1005,
+    "NieR:Automata Ver1.1a Part 2": 1006,
+    "Nichijou": 1007,
+    "Niehime to Kemono no Ou": 1008,
+    "Nige Jouzu no Wakagimi": 1009,
+    "Nihon e Youkoso Elf-san.": 1010,
+    "Ningen Fushin no Boukensha-tachi ga Sekai wo Sukuu you desu": 1011,
+    "Ninja Kamui": 1012,
+    "Nijiiro Days": 1013,
+    "Ninja to Koroshiya no Futarigurashi": 1014,
+    "No Game No Life: Zero": 1015,
+    "Nisekoi": 1016,
+    "Nisemonogatari": 1017,
+    "No Game No Life": 1018,
+    "No Guns Life": 1019,
+    "Nisekoi Season 2": 1020,
+    "No Guns Life Season 2": 1021,
+    "No.6": 1022,
+    "Noblesse": 1023,
+    "Nobunaga-sensei no Osanazuma": 1024,
+    "Nobunagun": 1025,
+    "Nodame Cantabile Season 3": 1026,
+    "Nobunaga the Fool": 1027,
+    "Nodame Cantabile Season 2": 1028,
+    "Nodame Cantabile": 1029,
+    "Nokemono-tachi no Yoru": 1030,
+    "Megalo Box Season 2": 1031,
+    "Non Non Biyori": 1032,
+    "Non Non Biyori Season 3": 1033,
+    "Non Non Biyori Season 2": 1034,
+    "Nora to Oujo to Noraneko Heart": 1035,
+    "Noragami Season 2": 1036,
+    "Noragami": 1037,
+    "NouCome": 1038,
+    "Noukin": 1039,
+    "Noumin Kanren no Skill bakka Agetetara Nazeka Tsuyoku Natta": 1040,
+    "Nozomanu Fushi no Boukensha": 1041,
+    "number24": 1042,
+    "Nyanko Days": 1043,
+    "Occultic Nine": 1044,
+    "Ochikobore Fruit Tart": 1045,
+    "Oda Cinnamon Nobunaga": 1046,
+    "Oda Nobuna no Yabou": 1047,
+    "Odd Taxi": 1048,
+    "Okaasan online": 1049,
+    "Ojou to Banken-kun": 1050,
+    "Okashi na Tensei": 1051,
+    "One Punch Man Season 2": 1052,
+    "One Room, Hiatari Futsuu, Tenshi-tsuki.": 1053,
+    "One Punch Man": 1054,
+    "Oneechan ga Kita": 1055,
+    "Onimonogatari": 1056,
+    "Oniichan dakedo Ai sae Areba Kankeinai yo ne!": 1057,
+    "Oniichan wa Oshimai!": 1058,
+    "Ookami Shoujo to Kuro Ouji": 1059,
+    "Ookami to Koushinryou": 1060,
+    "Ookami to Koushinryou Season 2": 1061,
+    "Ooyukiumi no Kaina": 1062,
+    "Ookami to Koushinryou: Merchant Meets the Wise Wolf": 1063,
+    "Orange": 1064,
+    "Ore dake Haireru Kakushi Dungeon": 1065,
+    "Ore ga Suki nano wa Imouto dakedo Imouto ja Nai": 1066,
+    "Oreimo": 1067,
+    "Ore wa Seikan Kokka no Akutoku Ryoushu!": 1068,
+    "Oreimo Season 2": 1069,
+    "Ore Monogatari": 1070,
+    "Ore wa Subete wo \"Parry\" suru": 1071,
+    "Oresuki": 1072,
+    "Oregairu": 1073,
+    "Oregairu Season 3": 1074,
+    "Oregairu Season 2": 1075,
+    "Oshi ga Budoukan Ittekuretara Shinu": 1076,
+    "Osamake": 1077,
+    "Oshi no Ko": 1078,
+    "Oshi no Ko Season 2": 1079,
+    "Otome Game Sekai wa Mob ni Kibishii Sekai desu": 1080,
+    "Otonari ni Ginga": 1081,
+    "Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken": 1082,
+    "Otorimonogatari": 1083,
+    "Ousama Ranking: Yuuki no Takarabako": 1084,
+    "Outbreak Company": 1085,
+    "Ousama Ranking": 1086,
+    "Ouran Koukou Host Club": 1087,
+    "Overlord": 1088,
+    "Overlord Season 2": 1089,
+    "Overlord Season 3": 1090,
+    "Overlord Season 4": 1091,
+    "Overtake!": 1092,
+    "Owari no Seraph": 1093,
+    "Owari no Seraph Season 2": 1094,
+    "Owarimonogatari": 1095,
+    "Owarimonogatari Season 2": 1096,
+    "Party kara Tsuihou sareta Sono Chiyushi, Jitsu wa Saikyou ni Tsuki": 1097,
+    "Paripi Koumei": 1098,
+    "Papa no Iukoto wo Kikinasai!": 1099,
+    "Pandora Hearts": 1100,
+    "Pastel Memories": 1101,
+    "Peach Boy Riverside": 1102,
+    "Pet": 1103,
+    "Photokano": 1104,
+    "Piano no Mori": 1105,
+    "Phantasy Star Online 2: Episode Oracle": 1106,
+    "Phantom: Requiem for the Phantom": 1107,
+    "Piano no Mori Season 2": 1108,
+    "Ping Pong The Animation": 1109,
+    "Planet With": 1110,
+    "Plastic Neesan": 1111,
+    "Plastic Memories": 1112,
+    "Pon no Michi": 1113,
+    "Platinum End": 1114,
+    "Potion-danomi de Ikinobimasu!": 1115,
+    "Plunderer": 1116,
+    "Prima Doll": 1117,
+    "Princess Connect": 1118,
+    "Princess Connect! Re:Dive Season 2": 1119,
+    "Psycho-Pass Season 2": 1120,
+    "Psycho-Pass Season 3": 1121,
+    "Psycho-Pass": 1122,
+    "Puraore! Pride of Orange": 1123,
+    "Qualidea Code": 1124,
+    "Quan Zhi Gao Shou": 1125,
+    "Radiant": 1126,
+    "Radiant Season 2": 1127,
+    "Rail Wars": 1128,
+    "Ragna Crimson": 1129,
+    "Raise wa Tanin ga Ii": 1130,
+    "Ranma \u00bd": 1131,
+    "Ramen Daisuki Koizumi-san": 1132,
+    "Re-Kan!": 1133,
+    "Re-Main": 1134,
+    "Re:Monster": 1135,
+    "Re: Zero kara Hajimeru Isekai Seikatsu": 1136,
+    "Re:Creators": 1137,
+    "Re:Zero kara Hajimeru Isekai Seikatsu Season 2": 1138,
+    "Rekishi ni Nokoru Akujo ni Naru zo": 1139,
+    "Release the Spyce": 1140,
+    "Re:Zero kara Hajimeru Isekai Seikatsu Season 3": 1141,
+    "ReLIFE": 1142,
+    "Renai Boukun": 1143,
+    "Renai Flops": 1144,
+    "Renmei Kuugun Koukuu Mahou Ongakutai Luminous Witches": 1145,
+    "Rewrite": 1146,
+    "Revenger": 1147,
+    "Rewrite Season 2": 1148,
+    "Rifle Is Beautiful": 1149,
+    "RikeKoi": 1150,
+    "RikeKoi Season 2": 1151,
+    "Rock wa Lady no Tashinami deshite": 1152,
+    "Robotics Notes": 1153,
+    "Rokka no Yuusha": 1154,
+    "Rokudenashi Majutsu Koushi to Akashic Records": 1155,
+    "Rokudou no Onna-tachi": 1156,
+    "Rokujouma no Shinryakusha": 1157,
+    "Rosario to Vampire": 1158,
+    "Rosario to Vampire Season 2": 1159,
+    "Roukin": 1160,
+    "Rozen Maiden": 1161,
+    "RPG Fudousan": 1162,
+    "Runway de Waratte": 1163,
+    "Ruri no Houseki": 1164,
+    "Ryman's Club": 1165,
+    "One Piece": 1166,
+    "Ryuugajou Nanana no Maizoukin": 1167,
+    "Rurouni Kenshin Season 2": 1168,
+    "Rurouni Kenshin": 1169,
+    "Ryuuou no Oshigoto!": 1170,
+    "S-Rank Monster no \"Behemoth\" dakedo": 1171,
+    "Ryza no Atelier": 1172,
+    "S-Rank Musume": 1173,
+    "Sabagebu!": 1174,
+    "Sabikui Bisco": 1175,
+    "Saenai Heroine no Sodatekata Season 2": 1176,
+    "Saihate no Paladin": 1177,
+    "Saenai Heroine no Sodatekata": 1178,
+    "Saijaku Muhai no Bahamut": 1179,
+    "Saijaku Tamer wa Gomi Hiroi no Tabi wo Hajimemashita": 1180,
+    "Saikin Yatotta Maid ga Ayashii": 1181,
+    "Saikyou no Shienshoku \"Wajutsushi\" de Aru Ore wa Sekai Saikyou Clan wo Shitagaeru": 1182,
+    "Saiki Kusuo no Psi Nan": 1183,
+    "Saikyou Onmyouji no Isekai Tenseiki": 1184,
+    "Saiki Kusuo no Psi Nan Season 2": 1185,
+    "Saikyou Tank no Meikyuu Kouryaku": 1186,
+    "Sakamichi no Apollon": 1187,
+    "Sakamoto Days": 1188,
+    "Sakamoto Days Part 2": 1189,
+    "Sakamoto desu ga?": 1190,
+    "Sakugan": 1191,
+    "Sakura Trick": 1192,
+    "Sakurako-san": 1193,
+    "Salaryman ga Isekai ni Ittara Shitennou ni Natta Hanashi": 1194,
+    "Sakura Quest": 1195,
+    "Sakurasou no Pet na Kanojo": 1196,
+    "Sarazanmai": 1197,
+    "Sankarea": 1198,
+    "Sasaki to Pii-chan": 1199,
+    "Samurai Champloo": 1200,
+    "Sasayaku You ni Koi wo Utau": 1201,
+    "Sayonara Watashi no Cramer": 1202,
+    "Sayounara Ryuusei, Konnichiwa Jinsei": 1203,
+    "Satsuriku no Tenshi": 1204,
+    "Seijo no Maryoku wa Bannou Desu": 1205,
+    "Seija Musou": 1206,
+    "Seijo no Maryoku wa Bannou desu Season 2": 1207,
+    "Seiken Densetsu: Legend of Mana": 1208,
+    "Scarlet Nexus": 1209,
+    "Seiken Gakuin no Makentsukai": 1210,
+    "Seikimatsu Occult Gakuin": 1211,
+    "Seiken Tsukai no World Break": 1212,
+    "Seikoku no Dragonar": 1213,
+    "Seirei Gensouki": 1214,
+    "Seirei Gensouki Season 2": 1215,
+    "Seirei Tsukai no Blade Dance": 1216,
+    "Seiren": 1217,
+    "Seishun Buta Yarou wa Bunny Girl Senpai no Yume wo Minai": 1218,
+    "Seitokai Yakuindomo": 1219,
+    "Seitokai Yakuindomo Season 2": 1220,
+    "Seiyuu Radio no Uraomote": 1221,
+    "Ansatsu Kizoku": 1222,
+    "Sekirei": 1223,
+    "Sekirei Season 2": 1224,
+    "Sengoku Basara": 1225,
+    "Selection Project": 1226,
+    "Sengoku Basara Season 2": 1227,
+    "Sengoku Basara Season 3": 1228,
+    "Senpai wa Otokonoko": 1229,
+    "Sengoku Otome: Momoiro Paradox": 1230,
+    "Sengoku Youko": 1231,
+    "Senpai ga Uzai Kouhai no Hanashi": 1232,
+    "Senryuu Shoujo": 1233,
+    "Sengoku Youko Season 2": 1234,
+    "Sentai Daishikkaku": 1235,
+    "Sentai Daishikkaku Season 2": 1236,
+    "Sentouin Hakenshimasu!": 1237,
+    "Senyoku no Sigrdrifa": 1238,
+    "Servant x Service": 1239,
+    "Seven Knights Revolution: Eiyuu no Keishousha": 1240,
+    "Sewayaki Kitsune no Senko-san": 1241,
+    "Shachiku-san wa Youjo Yuurei ni Iyasaretai.": 1242,
+    "Shachibato": 1243,
+    "Seto no Hanayome": 1244,
+    "Shadows House": 1245,
+    "Shadows House Season 2": 1246,
+    "Shaman King: Flowers": 1247,
+    "Shakugan no Shana": 1248,
+    "Shakugan no Shana Season 2": 1249,
+    "Shangri-La Frontier": 1250,
+    "Shichisei no Subaru": 1251,
+    "Shigofumi": 1252,
+    "Shijou Saikyou no Daimaou, Murabito A ni Tensei suru": 1253,
+    "Shigatsu wa Kimi no Uso": 1254,
+    "Shikanoko Nokonoko Koshitantan": 1255,
+    "Shaman King": 1256,
+    "Shimoneta": 1257,
+    "Shikkakumon no Saikyou Kenja": 1258,
+    "Shin no Nakama ja Nai to Yuusha no Party wo Oidasareta node Season 2": 1259,
+    "Shiki": 1260,
+    "Shin Sakura Taisen the Animation": 1261,
+    "Shin Tennis no Oujisama: U-17 World Cup Semifinal": 1262,
+    "Shinka no Mi Season 2": 1263,
+    "Shinchou Yuusha": 1264,
+    "Shine Post": 1265,
+    "Shingeki no Kyojin OVA": 1266,
+    "Shingeki no Bahamut: Genesis": 1267,
+    "Shingeki no Kyojin Season 2": 1268,
+    "Shingeki no Bahamut: Virgin Soul": 1269,
+    "Shingeki no Kyojin": 1270,
+    "Shingeki no Kyojin Season 4": 1271,
+    "Shingeki no Kyojin Season 3": 1272,
+    "Shingeki no Kyojin Season 4 Part 2": 1273,
+    "Shinigami Bocchan to Kuro Maid": 1274,
+    "Shinigami Bocchan to Kuro Maid Season 2": 1275,
+    "Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei": 1276,
+    "Shinigami Bocchan to Kuro Maid Season 3": 1277,
+    "Shinmai Ossan Boukensha": 1278,
+    "Shinobi no Ittoki": 1279,
+    "Shinmai Renkinjutsushi no Tenpo Keiei": 1280,
+    "Shinryaku! Ika Musume": 1281,
+    "Shinryaku! Ika Musume Season 2": 1282,
+    "Shiro Seijo to Kuro Bokushi": 1283,
+    "Shironeko Project: Zero Chronicle": 1284,
+    "Shinsekai yori": 1285,
+    "Shirobako": 1286,
+    "Shiroi Suna no Aquatope": 1287,
+    "Shiunji-ke no Kodomotachi": 1288,
+    "Shokei Shoujo no Virgin Road": 1289,
+    "Shokugeki no Souma Season 5": 1290,
+    "Shokugeki no Souma Season 2": 1291,
+    "Shokugeki no Souma Season 4": 1292,
+    "Shokugeki no Souma": 1293,
+    "Shomin Sample": 1294,
+    "Shokugeki no Souma Season 3": 1295,
+    "Shoujo Shuumatsu Ryokou": 1296,
+    "Shoumetsu Toshi": 1297,
+    "Shoushimin Series": 1298,
+    "Shoushimin Series Season 2": 1299,
+    "SukaSuka": 1300,
+    "Shuumatsu no Izetta": 1301,
+    "Shuumatsu Train Doko e Iku?": 1302,
+    "Shy": 1303,
+    "Shy Season 2": 1304,
+    "Silent Witch": 1305,
+    "SK8": 1306,
+    "Skip to Loafer": 1307,
+    "Slime Taoshite 300-nen Season 2": 1308,
+    "Slime Taoshite 300-nen": 1309,
+    "Slow Loop": 1310,
+    "Sokushi Cheat ga Saikyou sugite": 1311,
+    "Solo Leveling": 1312,
+    "Solo Leveling Season 2": 1313,
+    "Somali to Mori no Kamisama": 1314,
+    "Sonny Boy": 1315,
+    "Sono Bisque Doll wa Koi wo Suru": 1316,
+    "Sono Bisque Doll wa Koi wo Suru Season 2": 1317,
+    "Sora no Method": 1318,
+    "Sora no Otoshimono Season 2": 1319,
+    "Sora no Otoshimono": 1320,
+    "Sorairo Utility": 1321,
+    "Sora yori mo Tooi Basho": 1322,
+    "Sore ga Seiyuu!": 1323,
+    "Soredemo Machi wa Mawatteiru": 1324,
+    "Soredemo Ayumu wa Yosetekuru": 1325,
+    "Soukou Musume Senki": 1326,
+    "Soredemo Sekai wa Utsukushii": 1327,
+    "Sounan Desu ka?": 1328,
+    "Spy Kyoushitsu": 1329,
+    "Spy Kyoushitsu Season 2": 1330,
+    "Spy x Family": 1331,
+    "Sousou no Frieren": 1332,
+    "Spy x Family Season 2": 1333,
+    "Spy x Family Part 2": 1334,
+    "SSSS.Dynazenon": 1335,
+    "SSSS.Gridman": 1336,
+    "Sousei no Onmyouji": 1337,
+    "Stella no Mahou": 1338,
+    "Steins;Gate 0": 1339,
+    "Steins Gate": 1340,
+    "Strike the Blood Season 2": 1341,
+    "Strike Witches": 1342,
+    "Strike the Blood": 1343,
+    "Subete ga F ni Naru": 1344,
+    "Sugar Apple Fairy Tale": 1345,
+    "Sugar Apple Fairy Tale Season 2": 1346,
+    "Suisei no Gargantia": 1347,
+    "Suki na Ko ga Megane wo Wasureta": 1348,
+    "Sukitte Ii na yo": 1349,
+    "Sunohara-sou no Kanrinin-san": 1350,
+    "Summer Pockets": 1351,
+    "Super Cub": 1352,
+    "Summertime Render": 1353,
+    "Sword Art Online Movie: Ordinal Scale": 1354,
+    "Sword Art Online Alternative: Gun Gale Online": 1355,
+    "Suzumiya Haruhi no Yuuutsu": 1356,
+    "Sword Art Online Alternative: Gun Gale Online Season 2": 1357,
+    "Sword Art Online": 1358,
+    "Taboo Tattoo": 1359,
+    "Sword Art Online Season 2": 1360,
+    "Sword Art Online: Alicization Season 2": 1361,
+    "Tada-kun wa Koi wo Shinai": 1362,
+    "Sword Art Online Season 3": 1363,
+    "Takopii no Genzai": 1364,
+    "Taimadou Gakuen 35 Shiken Shoutai": 1365,
+    "Taishou Otome Otogibanashi": 1366,
+    "Takt Op. Destiny": 1367,
+    "Tamako Market": 1368,
+    "Tanaka-kun wa Itsumo Kedaruge": 1369,
+    "Tamayomi": 1370,
+    "Tantei wa Mou, Shindeiru.": 1371,
+    "Tasokare Hotel": 1372,
+    "Tasogare Otome x Amnesia": 1373,
+    "Tate no Yuusha no Nariagari Season 2": 1374,
+    "Tasuuketsu": 1375,
+    "Tate no Yuusha no Nariagari Season 4": 1376,
+    "Tate no Yuusha no Nariagari": 1377,
+    "Tate no Yuusha no Nariagari Season 3": 1378,
+    "Lasdan": 1379,
+    "Tearmoon Teikoku Monogatari": 1380,
+    "Tejina-senpai": 1381,
+    "Temple": 1382,
+    "Tengoku Daimakyou": 1383,
+    "Tenkuu Shinpan": 1384,
+    "Tengen Toppa Gurren Lagann": 1385,
+    "Tensai Ouji no Akaji Kokka Saisei Jutsu": 1386,
+    "Tensei Kenja no Isekai Life": 1387,
+    "Tensei Kizoku no Isekai Boukenroku": 1388,
+    "Tensei Kizoku, Kantei Skill de Nariagaru": 1389,
+    "Tensei Kizoku, Kantei Skill de Nariagaru Season 2": 1390,
+    "Tensei Oujo to Tensai Reijou no Mahou Kakumei": 1391,
+    "Tensei shitara Dainana Ouji Datta node": 1392,
+    "Tensei shitara Ken Deshita": 1393,
+    "Tensui no Sakuna-hime": 1394,
+    "Tensei shitara Slime Datta Ken Season 2": 1395,
+    "Tensei shitara Slime Datta Ken": 1396,
+    "Tensura Nikki: Tensei shitara Slime Datta Ken": 1397,
+    "Tensei shitara Slime Datta Ken Season 3": 1398,
+    "Teogonia": 1399,
+    "Teppen!!!!!!!!!!!!!!!": 1400,
+    "Terra Formars Season 2": 1401,
+    "The Beginning After the End": 1402,
+    "Terra Formars": 1403,
+    "The iDOLM@STER Million Live!": 1404,
+    "The iDOLM@STER Shiny Colors Season 2": 1405,
+    "The iDOLM@STER Shiny Colors": 1406,
+    "The Fable": 1407,
+    "The Idolmaster": 1408,
+    "The Legend of Heroes: Sen no Kiseki - Northern War": 1409,
+    "The Marginal Service": 1410,
+    "The New Gate": 1411,
+    "The World God Only Knows": 1412,
+    "The World God Only Knows Season 2": 1413,
+    "The World God Only Knows Season 3": 1414,
+    "To Be Hero X": 1415,
+    "To LOVE Ru Season 2": 1416,
+    "To LOVE-Ru Darkness Season 2": 1417,
+    "To LOVE Ru Darkness": 1418,
+    "To LOVE Ru": 1419,
+    "Toaru Kagaku no Accelerator": 1420,
+    "Toaru Kagaku no Railgun Season 2": 1421,
+    "Toaru Kagaku no Railgun": 1422,
+    "Toaru Kagaku no Railgun Season 3": 1423,
+    "Toaru Majutsu no Index": 1424,
+    "Toaru Majutsu no Index Season 2": 1425,
+    "Tokidoki Bosotto Russia-go de Dereru Tonari no Alya-san": 1426,
+    "Toaru Ossan no VRMMO Katsudouki": 1427,
+    "Tokunana": 1428,
+    "Tokyo ESP": 1429,
+    "Toaru Majutsu no Index Season 3": 1430,
+    "Tokyo Ghoul Season 2": 1431,
+    "Tokyo Ghoul": 1432,
+    "Tokyo Ghoul Season 3": 1433,
+    "Tokyo Ghoul:re Season 2": 1434,
+    "Tokyo Magnitude 8.0": 1435,
+    "Tokyo Revengers Season 2": 1436,
+    "Tokyo Ravens": 1437,
+    "Tokyo Revengers": 1438,
+    "Tokyo Revengers Season 3": 1439,
+    "Tomo-chan wa Onnanoko!": 1440,
+    "Tonari no Youkai-san": 1441,
+    "Tomodachi Game": 1442,
+    "Tonari no Kyuuketsuki-san": 1443,
+    "Tonari no Kaibutsu-kun": 1444,
+    "Tondemo Skill de Isekai Hourou Meshi": 1445,
+    "Tonikaku Kawaii": 1446,
+    "Tonikaku Kawaii: Joshikou-hen": 1447,
+    "Tonari no Seki-kun": 1448,
+    "Tonikaku Kawaii Season 2": 1449,
+    "Touken Ranbu Kai": 1450,
+    "Tribe Nine": 1451,
+    "Trinity Seven": 1452,
+    "Toradora!": 1453,
+    "True Tears": 1454,
+    "Trillion Game": 1455,
+    "Tsue to Tsurugi no Wistoria": 1456,
+    "Tsugumomo Season 2": 1457,
+    "Tsukimonogatari": 1458,
+    "Tsuki ga Kirei": 1459,
+    "Tsuki ga Michibiku Isekai Douchuu": 1460,
+    "Tsuki to Laika to Nosferatu": 1461,
+    "Tsuma, Shougakusei ni Naru.": 1462,
+    "Tsunlise": 1463,
+    "Tsuki ga Michibiku Isekai Douchuu Season 2": 1464,
+    "Tsurezure Children": 1465,
+    "Tsuritama": 1466,
+    "Tsurune: Kazemai Koukou Kyuudoubu": 1467,
+    "\u00dcbel Blatt": 1468,
+    "Tsurune Season 2": 1469,
+    "Uchi no Kaisha no Chiisai Senpai no Hanashi": 1470,
+    "Uchi no Maid ga Uzasugiru!": 1471,
+    "Uchitama": 1472,
+    "UchiMusume": 1473,
+    "Uchouten Kazoku": 1474,
+    "Uchouten Kazoku Season 2": 1475,
+    "Ueno-san wa Bukiyou": 1476,
+    "Ulysses: Jehanne Darc to Renkin no Kishi": 1477,
+    "Uma Musume: Cinderella Gray": 1478,
+    "Uma Musume Pretty Derby": 1479,
+    "Uma Musume: Pretty Derby Season 2": 1480,
+    "Uma Musume: Pretty Derby Season 3": 1481,
+    "Undead Girl Murder Farce": 1482,
+    "Under Ninja": 1483,
+    "Unnamed Memory": 1484,
+    "Umineko no Naku Koro ni": 1485,
+    "Unnamed Memory Season 2": 1486,
+    "Undead Unluck": 1487,
+    "Uramichi Oniisan": 1488,
+    "Urara Meirochou": 1489,
+    "Urusei Yatsura (2022)": 1490,
+    "Urasekai Picnic": 1491,
+    "Usagi Drop": 1492,
+    "Ushio to Tora Season 2": 1493,
+    "Uzaki-chan wa Asobitai!": 1494,
+    "Uzaki-chan wa Asobitai! Season 2": 1495,
+    "Uzumaki": 1496,
+    "Ushio to Tora": 1497,
+    "Utawarerumono Season 3": 1498,
+    "Val x Love": 1499,
+    "Vampire Dormitory": 1500,
+    "Vanitas no Karte": 1501,
+    "Vanitas no Karte Season 2": 1502,
+    "Vigilante: Boku no Hero Academia Illegals": 1503,
+    "Violet Evergarden": 1504,
+    "Visual Prison": 1505,
+    "Vinland Saga": 1506,
+    "Vivid Strike": 1507,
+    "Vinland Saga Season 2": 1508,
+    "Vividred Operation": 1509,
+    "Vivy": 1510,
+    "VTuber Nandaga Haishin Kiri Wasuretara Densetsu ni Natteta": 1511,
+    "W'z": 1512,
+    "Warau Arsnotoria Sun!": 1513,
+    "Watanare": 1514,
+    "Watamote": 1515,
+    "Watashi ga Motete Dousunda": 1516,
+    "Watashi ni Tenshi ga Maiorita!": 1517,
+    "Watashi no Oshi wa Akuyaku Reijou": 1518,
+    "Watashi no Shiawase na Kekkon": 1519,
+    "Watashi no Shiawase na Kekkon Season 2": 1520,
+    "Watashi no Yuri wa Oshigoto desu!": 1521,
+    "Wind Breaker": 1522,
+    "White Album 2": 1523,
+    "Wind Breaker Season 2": 1524,
+    "Witch Craft Works": 1525,
+    "Wonder Egg Priority": 1526,
+    "Wizard Barristers": 1527,
+    "Witch Watch": 1528,
+    "Working": 1529,
+    "Working Season 2": 1530,
+    "World Dai Star": 1531,
+    "World Trigger Season 2": 1532,
+    "Working Season 3": 1533,
+    "Wotaku ni Koi wa Muzukashii": 1534,
+    "World Trigger Season 3": 1535,
+    "WWW.Working!!": 1536,
+    "Yakunara Mug Cup mo": 1537,
+    "Yagate Kimi ni Naru": 1538,
+    "Yakusoku no Neverland": 1539,
+    "Yakusoku no Neverland Season 2": 1540,
+    "Yama no Susume: Next Summit": 1541,
+    "Yamada-kun to 7-nin no Majo": 1542,
+    "Yamada-kun to Lv999 no Koi wo Suru": 1543,
+    "Yarinaoshi Reijou wa Ryuutei Heika wo Kouryakuchuu": 1544,
+    "Yami Healer": 1545,
+    "Yesterday wo Utatte": 1546,
+    "Yatogame-chan Kansatsu Nikki Season 2": 1547,
+    "The Tatami Galaxy": 1548,
+    "Yofukashi no Uta": 1549,
+    "Yoru no Kurage wa Oyogenai": 1550,
+    "Youjo Senki": 1551,
+    "Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e": 1552,
+    "Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e Season 2": 1553,
+    "Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e Season 3": 1554,
+    "Youkai Gakkou no Sensei Hajimemashita!": 1555,
+    "Your Forma": 1556,
+    "Yubisaki to Renren": 1557,
+    "Yumemiru Danshi wa Genjitsushugisha": 1558,
+    "Yuragi-sou no Yuuna-san": 1559,
+    "Yowamushi Pedal Season 5": 1560,
+    "Yozakura-san Chi no Daisakusen": 1561,
+    "Yuri Kuma Arashi": 1562,
+    "Yuri on Ice": 1563,
+    "Yuru Camp": 1564,
+    "Yuru Camp Season 2": 1565,
+    "Yuru Camp Season 3": 1566,
+    "Yuru Yuri": 1567,
+    "Yuru Yuri Season 3": 1568,
+    "Yuru Yuri Season 2": 1569,
+    "Yuusha ga Shinda!": 1570,
+    "Yuusha Party wo Tsuihou sareta Beast Tamer": 1571,
+    "Yuusha, Yamemasu": 1572,
+    "Yuzuki-san Chi no Yonkyoudai": 1573,
+    "Z/X Code Reunion": 1574,
+    "Zankyou no Terror": 1575,
+    "Zatsu Tabi: That's Journey": 1576,
+    "Zenshuu": 1577,
+    "Zero no Tsukaima": 1578,
+    "Zero kara Hajimeru Mahou no Sho": 1579,
+    "Zero no Tsukaima Season 4": 1580,
+    "Zero no Tsukaima Season 2": 1581,
+    "Zoku Owarimonogatari": 1582,
+    "Zero no Tsukaima Season 3": 1583,
+    "Zettai Karen Children: The Unlimited - Hyoubu Kyousuke": 1584,
+    "Zom 100: Zombie ni Naru made ni Shitai 100 no Koto": 1585,
+    "Zetsuen no Tempest": 1586,
+    "Zombieland Saga": 1587,
+    "Zombieland Saga Season 2": 1588,
+    "Zutaboro Reijou wa Ane no Moto Konyakusha ni Dekiai sareru": 1589
+}
